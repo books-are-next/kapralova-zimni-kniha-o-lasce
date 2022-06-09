@@ -2,8 +2,8 @@
 contentType: prose
 ---
 
-S láskou P. E., jehož knihu „Jedna žena“  
+_S láskou P. E., jehož knihu „Jedna žena“  
 jsem nikdy nedočetla.   
    
 Mit Liebe P. E. gewidmet, dessen Buch „Eine Frau“  
-ich nie zu Ende gelesen habe.
+ich nie zu Ende gelesen habe._
