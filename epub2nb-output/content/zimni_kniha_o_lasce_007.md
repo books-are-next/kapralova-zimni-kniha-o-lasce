@@ -8,470 +8,318 @@ contentType: prose
 
   
 
-  
-
-  
-
-  
-
-  
-
 Je jeden muž. Miluji ho. Je starý jako Metuzalém, a když se protáhne, praskají mu kosti v těle. Nenávidí mě dravou nenávistí chudých starců. Tvrdí, že přicházejí dny bezplatných mostů… To je něco o smrti? Goethe? Nerozumím mu ani slovo, a proto ho tolik miluji. Piju s ním nejraději ruskou čokoládu a přemítáme o Fontainovi, protože ten je dlouho mrtev a téma je to víceméně neutrální. Říkám mu: „Srdce mi puká jen tak obyčejně. Praporem mé loďky je vaše střízlivost. Bruslíte? Miluji vás. Ale je to těžké, takto a tolik!“ Mlčí trochu zpupně. A pak mi krasopisně na účtenku napíše: _Co furt otravuješ?_
 
-\* \* \*
-
-  
+* * *
 
 Je jedno hnutí. Miluji ho. Jmenuje se gender. Nenávidí mě. Tvrdí, že nemohu, že prostě nemohu psát v růžovém negližé s ryšavým knírkem.
 
-\* \* \*
-
-  
+* * *
 
 Je jeden muž. Nenávidím ho. A je mi ho i líto. Sklání se nade mnou v nádražní hospodě _U Mašinky_. Je to tlustý, plešatící číšník se skly zamženými výpary z kuchyně. Říkám mu: „Pane, dám si ruskou čokoládu, se šlehačkou.“ Ústa se mu zkřiví a naříkají: „A toť-toť-toť, toť jako co?“ Páchnou kysele, ta ústa. Trpělivě mu vysvětlím, že jde o běžný habsbursko-monarchistický zvyk, Vídeň že je nedaleko. Takže v každé naší milé moravské nádražní hospůdce by měli mít ruskou čokoládu. Ztrácím ale jistotu, a ano, už se mu dokonce omlouvám, omlouvám se. „My tu nejzme žádny Ritz, to si mósiš do ciziny,“ sykne a raní mě šípem nacionalismu. Vždyť ještě před chvílí jsem byla v cizině a vzhlížela ku… Za špinavými okny jezdí špinavé rychlíky a osobáčky, v nich sedí špinavé děti a maminky v bílých bundách s fleky na světlých riflích, rozzlobené už z Olomouce, že také ony už jsou špinavé, tak smutně, beznadějně špinavé. _U Mašinky_ se netopí, nebo topí, ale jen tak, aby se neřeklo, takže spíš netopí, topení je vlažné a třem osamělým pijákům stoupá od huby pára. Leden; prší do sněhu. „Takže _pigi-grog_,“ zapíše si číšník. V rádiu se zeptá moderátorka na to, jak by si muži představovali ideální ženu. A už se sešly odpovědi, už to háže do éteru. „Takže,“ říká moderátorka, „ideální žena by měla říct: ‚Voprcej mě třikrát denně, ale nejprv ti vyžehlím košile a trenky,“ _alebo_: ,Miláčku, nechala jsem ti maso v troubě, pivo máš v lednici, v telině fotbal, a až se dodíváš, tak…,‘ _keďže_,“ zasměje se žena hlasem, z něhož zpočátku nelze vyčíst jednoznačnou emoci, ale teď už ano, protože jak to říká, hlas jí postupně selhává. Snad šlo původně o slušnou katolickou dívku z Rimavské Soboty, až do doby, než jako elévka vstoupila do rádia _Břeclavský šuhaj_. Možná bývala až do tohoto neslyšitelného skřeku veselou roztleskávačkou místní ligy, slavnou zejména na Břeclavsku, ale teď, zničehonic, se jí zachtělo dělat v životě něco _užitečnějšího_, a neví přesně _co_, tak pro začátek zadržuje aspoň pláč… Po perónu projde stařenka, šourá se o berlích a vrací klíče od klozetu. Vlak jí mezitím ujíždí… Jsme otroky svých tužeb, říkám letargickému grogu v městečku O., a ani grog už nedopíjím. Nastupuji do špinavého osobáčku, pak do rychlíku, pak do rakety, jen musím rychle vyhledat kupéčko bez maminky v bílé špinavé bundě, co říká svému muži: „Pivo máš v lednici a fotbal v telině…“ Té hodné i lhostejné maminky, co se později venku zamyslí nad svým životem a diví se: opuštěná! A naříká pak smutně taková maminka bílé špinavé bundy; a jsou jich mraky, maminek takových. Jsou čistotné, perou, žehlí, pečou, trouby věčně nažhavené a piva věčně vychlazená; a hodné jsou, ne jako já… Tak s nimi právě teď nechci sedět v kupéčku. Mám jiný program: ruskou čokoládu. Takovou tu, která není.
 
-\* \* \*
-
-  
+* * *
 
 Je jedno hnutí. Miluji ho. Říkají si Femen. Právě dnes jeho členky bojují v mrazivém Davosu. Mají ňadra pomalovaná hesly za práva žen. Na zem je seslal Bůh. Bojují proti církvi, ale Bůh je miluje, protože jestli je Bůh mužem, a Bůh je přece mužem, pak miluje jejich upravené vlasy, vyholená ohanbí, rudé rty a obnažená ňadra, jejich militantní odhodlání, únavu i pečlivý marketing. Také některé ženy a muži femeny milují. Z mužů nejvíc feminističtí právníci, co za ně bojují proti machistickým právníkům, a pak mafián, co je všechny tajně řídí. Je jedno hnutí. Jeho členky pláčou do světových kamer, pilují si nehty, barví vlasy a jen tak bokem v sauně vymýšlejí strategie. A je to hnutí i velmi směšné, i velmi závažné; silnější než feminismus, silnější než gender, silnější než facebook, silnější než ekologie, silnější než veganství, silnější než workshop o sexismu, silnější než maskulinní nejistota, silnější než metafora, silnější než láska… Je to sextrismus. Dětský a krutý jak lvovská bajka.
 
-\* \* \*
-
-  
+* * *
 
 Je jeden muž. Stojím naproti němu v domácích potřebách. Jsem o hlavu vyšší. Měří tedy odhadem 163 centimetrů. Má modrý plášť vedoucího prodejny, pleš, červený nos, mírnou nadváhu a v plášti propisku. Je úslužný. Odpuzuje mě. Miluji ho, když je mi pět a jemu sedm. Blonďaté kudrnaté vlásky, oči modré, andílek. Jedeme s jeho rodiči trabantem na chatu. Sníh taje, kusy ledu v řece. Jak dát chlapci pocítit sílu své lásky? Dívám se mu za jízdy na boty, výš už ne, výš se stydím, tam výš má tvář, oči a taky ústa, a někde uprostřed pindíka, ten mě v tu chvíli nezajímá, to už spíše duše jeho. Jsme na chatě. Rodiče nás posílají s plechovou konví pro vodu k řece. Jdeme. V lese mi chlapčuljatko říká, že ho to se mnou nebaví, jsem debilní, mám jít sama. Jdu. A už jsem u řeky, už se s konví nakláním. Proud je silný, strhne konev. Skočím za konví, miluji ho. A miluji proto i tu konev, protože patří vedoucímu z potřeb domácích, ale to nevím, to přece ještě nevím, že bude vedoucím. Strhne mě proud řeky, chytnu se klacku. Konev uplave, vzpříčí se až dole u splavu. Neutopím se, jen se mokrá vracím s klackem v ruce bez konve. Nad kamny se suší mé punčocháče, jsem přikrytá dekou a jeho tatínek mi vyhrožuje: „Ty, jestli vaši nemajou pojištění, tak s tou konvou nevim, ty…“ „Ty,“ říkám vedoucímu z domácích potřeb, „máte žárovku 250 wattů, ale ne šetrnou, pořádnou, takhle velikou?“ Rozsvítí se. Žalud pod pláštěm se mu zduří. Kousne se do jazyka. Jmenuje se Lojza a je třikrát rozveden.
 
-\* \* \*
-
-  
+* * *
 
 Je jeden muž. Miluji ho. Miluje mě. Je to můj muž. Stojím proti němu jen v punčocháčích, je noc, jsem těhotná, moc. A pak se zničehonic počurám. Je znechucený. Já ale miluji ten náhlý pocit mokrých punčocháčů. Usmívám se nepříliš bystře, není to přece nic osobního, nic proti našemu soužití. On však miluje hygienu. „Kdo to bude prát?“ zlobí se. _Prát se musí na 90 stupňů, špínu je nutno vyvařit. Ústa je třeba vydrhnout, úd je třeba namydlit._ „Proboha slib mi, že ještě nerodíš, že nerodíš. Prosím, že nerodíš?“ „Nerodím,“ říkám mu tiše. „Ale ráda bych ti jednou porodila chlapce. Takového, úplně takového, jako jsi ty sám, jen aby nebyl tak posedlý hygienou…“ Usmívá se zase jako vítěz, pračka pere punčocháče, oltář čistoty se otáčí. Tomu se říká myzofobie, hloupá… Jdu spát, vždyť je noc. Vítězové bývají osamělí, závodníku Barrichello, tos nevěděl? Líbají v cílové rovince při státní hymně vlajku, ale jsou osamělí, strašlivě osamělí… Výjimečně ho opouštím, vždycky mu odpouštím. Miluji ho, nenávidím, miluje mě, nenávidí. Je jeden muž, je to můj muž.
 
-\* \* \*
+* * *
 
-Dnes jsem ji poprvé zahlédla v chodbě našeho domu. Ano, Esterákova dcera. Vynášela do patra kočárek se svým malým synkem, chvíli jsem za ní běžela, zrychlený dech, pak jsem nad tím mávla rukou. Co by si pomyslela, že jsem psychopatka? Šla jsem domů a uvařila si čaj. Ona už mezitím v okně své kuchyně trhala pomalým pohybem mátu.
+_Dnes jsem ji poprvé zahlédla v chodbě našeho domu. Ano, Esterákova dcera. Vynášela do patra kočárek se svým malým synkem, chvíli jsem za ní běžela, zrychlený dech, pak jsem nad tím mávla rukou. Co by si pomyslela, že jsem psychopatka? Šla jsem domů a uvařila si čaj. Ona už mezitím v okně své kuchyně trhala pomalým pohybem mátu._
 
-\* \* \*
-
-  
+* * *
 
 Je jeden muž. Už umí na rozdíl ode mě číst i psát, ale dost špatně; nikdy v tom ostatně nevynikne. Na jejich chatě jsme byli, pojeďme na tu naši. Přijel sem kvůli bratrovi, ne kvůli mně, a ano, je to on, Lojza… Šeptá si s mým bratrem na půdě a pak mi slavnostně oznámí, že mě políbí, když vydržím deset minut ve tmě zavřeného peřináče, na který si oba sednou. Nesmím však zapomenout, že „peřináč je rakev a chcípají v ní mrtvý mrtvoly“, řekne ještě. Pak odklopí víko z buku, tak já tam lezu, „já lezu, kluci“. Zaklopí víko, slyším, jak zadržují smích. V peřináči to smrdí zatuchlinou, myší hovínka, a taky ty mrtvé mrtvoly, co tam chcípají. Počítám do desíti, vyslovím pozpátku slovo _žloutek_. Pak si představuju, jak se to stane. Ta pusa. Myslím na to celé minuty. Víko se otevře. A budoucí vedoucí z domácích potřeb mi říká: „Políbím tě. Políbím. Ale musíš mě pohoupat na houpačce.“ Tak jdeme na houpačku za chatu, a není to houpačka, je to houpací síť, zavěšená mezi smrky. Cítím, jak mi tluče srdce. Leze tam jako pavouk do pavučiny, napadne mě, aha, já jsem asi moucha. Začínám ho pomalu houpat. Houpu a houpu, mezi zuby má L. žluté stéblo obilí. Je srpen. Houpu ho a houpu, houpu svůj život, životy svých rodičů, životy mrtvých myší, životy mrtvých duší, utopených konví v řece, houpu ho a houpu, tancuju a houpu, miluju a houpu, nenávidím a houpu, miluju a houpu a elá hop… L. spadne, můj budoucí z potřeb domácích, ups… Narazí si nos. Zlomí si nos. Chudáček. Vyjekne a zakřičí. Už mě nepolíbí, nestíhá mě ani nenávidět. Musí na pohotovost. Má zlomený nos, má ten můj Lojza rozbitý frňák, je to netvor s hnusným rozbitým frňákem a netuší, že za pár let moc nevyroste, bude mít pleš a mírnou nadváhu a bude populární především v domácích potřebách na Kobližné a v přilehlých uličkách. A to jsem pro něj ležela v rakvi! Připravena k polibku. Byla jsem v rakvi pro nic, říkám si. Zlomila jsem mu nos, pláču. Tak tedy srdce za nos. Je mi líto jeho života, zlomeného a zpackaného. Miluji ho, nenávidí mě, miluji, nenávidí… Brzy mi však bude lhostejný.
 
-\* \* \*
-
-  
+* * *
 
 Je jeden muž. Miluji ho. Jsem dítě a přes rok trpím nespavostí. Čtu si o něm v kadibudce za chatou v zimě roku 1984, ve stoplusjedničce, nespal tři roky, je to rekordman z Guinnessovy knihy, jmenuje se M. Cevres. Je z Havany, a když se ho ptali, co dělá jako nespáč, odpovídal, že chytá v noci mouchy a přemýšlí o osudu této planety a taky o lásce k ženě přemýšlí, a o svých třech krásných, kubánských dětech. Když si o něm čtu, říkám kadibudce _kubíbudka_ a nechce se mi odejít. Ani když je venku tma, zima, rampouchy a sníh. Miluji ho. Navíc má vousy. Jako můj tatínek, jako Fidel Castro, jako Bůh.
 
-\* \* \*
-
-  
+* * *
 
 Je jedno hnutí. Miluji ho. Jmenuje se gender. Nenávidí mě. Tvrdí mi, že angažovanost je permanentní stav a že já tento stav znevažuji svou ledabylostí, leností, svou vášní jen tak halabala.
 
-\* \* \*
-
-  
+* * *
 
 Je jeden muž. Miluji ho. Stojím u řečnického pultu v krematoriu, vyhlížím ho mezi smutečními hosty. On mě miluje v odhánění, jako mouchu. Když ale ten muž, jehož vyhlížím, listuje knihou v antikvariátě, když svou tvář vnořuje do starých tisků, když jazykem svým nekoordinovaně kmitá a obrací stránky starých tiskovin, když si slinami podtrhává nejroztodivnější pasáže ze starých obskurních textů, zapomíná mě odhánět. Je mimo. V takových chvílích mívám strach, že mi do knihy upadne a umatlá se od tiskařské černě. Že bude celý umouněný, že to zas neuhlídám. Odháněj mě, odháněj! Ale on nic, už padá do knih, na nose tiskařskou čerň, brejle zacákané. Jinak je to velmi slušný, řeklo by se i jemný člověk, extravagantní jen tím, jak zápasí svým jazykem s cizí knihou. Zvláštní je, že třeba mě svým jazykem neolízne nikdy. Jsem mu málo Briestová? Měl by psát, ale raději posedle čte, jako nějaký vytuněný sportovec. Každý jsme nějaký. Teď ho ale vyhlížím mezi smutečními hosty. A on nikde není. To mě rozteskní a je to tak v krematoriu asi i v pořádku.
 
-\* \* \*
-
-  
+* * *
 
 Je jeden muž. Miluji ho, ještě pořád ho m… Chystám se pronést svůj první nekrolog v životě za jednu právě zemřelou, co byla stará a laskavá (ale v našem vyprávění to nehraje vůbec žádnou roli). S nekrologem souhlasím, protože tajně doufám, že se na pohřbu objeví, on, můj knihpolykač, co mě miluje, jak lze jen milovat mouchu. Už dlouho jsem mu chtěla přednést pár svých myšlenek o smrti, jenže vždycky mě odehnal v domnění, že mluvím o sexu. Tak tedy teď. Ale on tu není. Přešlapuji za pultíkem, nedělám nic, nehýbu se. Pohledy pozůstalých jsou upřené na mé rty, já ale mlčím. A působí to působivě, napadá mě zpětně. Když je ticho neúnosné, nekrolog nakonec přečtu. Nikdo nezatleská, ale je to ve vzduchu, lidé jsou svým způsobem smíření, vzduchem se nese jednohlasně: _ateismus neexistuje, ateismus není…_ Všechno je zpomalené, podivné, jezerní, za rukáv mě na schodech před obřadní síní chytá stařeček, urputný kulatý stařeček, souká ze sebe historky o mrtvé, a když ustoupím o krok, chytne mě pevněji za rukáv kabátu, svírá mě surově – Chceš tančit tango, dědečku, chceš se mnou poznat kročeje smrti? – a zatímco mě pevně svírá, spatřím v davu svého polykače knih, plaše prchá směrem k hrobům, mizí mi z očí. Běžet za ním s otravným dědkem? Nehodí se přece honit ho jako nějaká hřbitovní veverka. Staříček by si navíc, v mém závěsu, uhnal nejspíš zápal plic. Ale co když právě teď, zkřehlý zimou, klečí knihpolykač u nějakého hrobu zborcený smutkem? A pak vidím, co vidím… Vykukuje v dálce s hercem a předčítačem z pohřbu. Oba decentně schovaní za sloupem pouliční lampy. Z profilu pozoruji jejich tváře, něčemu se usmívají, něčemu se smějí, smíchy svá těla prohýbají, plácají se do kolen, bezpečně vzdálení truchlícím, zuby jim lezou ven, celé dásně jsou jim vidět. A já za nimi neběžím. Já za nimi ani nejdu. Nechci je rušit, stařec mě dál drží za rukáv, vypráví. Sleduji okouzleně, jak se můj knihpolykač hlasitě směje, jak je šťastný, tak ano, i já jsem za něj šťastná. Pak jdeme, tajné bratrstvo přeživších, na pohřební hostinu. A všichni jsme rozpustilí, nervy zřejmě obnažené. Herec, co pošeptal obřadnici, že mikrofon je _dopiči_ příliš levný pro jeho ústa, vypráví zvesela o mysliveckém honu; je okouzlující, v soukromí osamělý. Po pohřební hostině mě čeká ještě jiná pohřební hostina (zimní výlet do rodného města). Čas mezi tryznami smím ale strávit s knihpolykačem, chytla jsem ho pevně za rukáv, přesně jak mě tomu urputný stařeček naučil. A opravdu, neprchá. Kráčíme spolu po městských antikvariátech. Jeho jazyk už zase olizuje pečlivě svaté odstavce vět. Mlčíme v hlubokém pohroužení. A pak jsme z toho celí znavení; pijeme v pomalém odpoledni ruskou čokoládu a vedeme měkký nezávažný hovor. Tak třeba o knihách. V molekule prachu, který mu uvízne na podrážce levé boty, když se jde vymočit, se však zračí jasný důkaz: paprsek nebešťanského citu. Dokonce i nějaký sex tam probleskne, jednou dvakrát zasvítí, hned zase zmizí. To nevadí. To přece nevadí. Vždyť je to tak velký den! A tolik života v něm; tolik skutečného života lemovaného mrtvými, napadá mě rozechvěle nad čokoládou, když tichým hlasem vypráví o jedné malé a velmi ošklivé indické opičce.
 
-\* \* \*
-
-  
+* * *
 
 Je jeden muž, herec, má kudrnaté blonďaté vlásky, a říkávalo se mu vždy zdrobnělinou. Věčný chlapec. _Chlapčuljatko_ slovensky. Hrál ve filmu, který se jmenoval tak a tak, ten film jsem nikdy neviděla. Tehdy. Když ho miluji. Řeknu mu v pěti letech u rybníka Holub, „pane, vy jste anděl,“ řeknu a uteču. Tatínek jen o kousek dál z mola pokukuje zbožně po své herečce. Miluje ji. Chtěl by a přitom nechtěl by – a tak o ní sem tam něco píše. Báseň, klidně i celou sbírku z paty vystřihne. To všichni chápeme. Vždyť píše o herečce jen básně. A to je všechno a všechno je to jedno, je to na nic, je to nic, bublina přibližné touhy. Ani ke mně v tu chvíli necítí nic. Anděl chlapčuljatko. A myslím, že ani otec ne, vždyť přece právě píše _tu_ báseň; jsem tak v tuto chvíli jen objektivizovaným dítětem u vody, které ho občas chytí za ruku, protože ho miluje, stejně jako on, otec, miluje právě teď svou herečku, stejně tak jako ono, dítě, miluje právě teď i svého herce. Cítí to dítě, že se současně stává důležitou rekvizitou tatínkova citového vzepětí! Cítí, že je vlastně vhodnou a vizuálně přitažlivou proprietou, houpavou loďkou v jezeře citu! Vždyť všichni jsme si nakonec čas od času estetickými rekvizitami. Dítě za ruku, tvářičku pohladit. Podívej, usměj se, ptáček vyletí, i my poletíme, brzy poletíme, celí touhou odlehčení, odlehčení a nazí, nebe je blizoučko, peklo ne…
 
-\* \* \*
-
-  
+* * *
 
 Je jeden muž, je to herec, chlapčuljatko. Miluji ho, říkajíc mu u rybníka Holub „pane, vy jste anděl…“ Potkávám herce po letech v hospodě. Chlubí se na baru, že má od včerejška vnuka. Vyslovím, co jsem mu řekla tehdy u Holuba. Nic z toho si nepamatuje, ale je dojat, zasměje se, ostatně je to herec, ostatně nevede se mu špatně, je čerstvě oholen a čerstvě rozveden. Pokukuje po mladé herečce ostrých rysů, také ji tahle příhoda dojala, ani jí se nevede špatně, je svobodná, ne, vdovou ona rozhodně není, zasměje se, napije se. Pijeme finsky. _Ráda bych vám upletla v tuto slavnostní chvíli svetr, pletu si ale jednoduchost s banalitou_, říkám, ach, zmatená úvaho, kde to vůbec jsem? Aha. Nemiluji ho. Děda. Nemiluje mě, dědo chlapčuljatko. Přesto mě obejme a políbí. Prsty mu krátce vjedu do stále pevných kudrlinek, a chci ho k sobě tak trochu přitáhnout. Zvláštní. Chci ho vcucnout, prudčeji, tak, aby se ve mně ani pohnout nemohl, a je mi celkem jedno, že je to nevhodné, nekorektní, je mi to vlastně v této pokročilé noční hodině u prdele, chci, aby pocítil tu dávnou velebnost chvíle u rybníka Holub. „_Je sperma anděla velebné? Nebo je dědkovské?_“ zeptá se někdo vzadu na baru. A jsem to zase já, kdo se tak hloupě ptá. Od baru se navrací můj muž, cuknu rukou v úleku, srazím skleničku, leknu se svého muže, střepy jsou napadrť, můj vstoupivší muž, můj dojemný vstoupivší muž, hudba hraje čím dál hlasitěji, a je to remix gregoriánského _orálu_, „pane, vy jste anděl,“ zašišlá dědovi mladá herečka, on jí do výstřihu stříkne z pusy kapku levného koňáčku, a všechno je _zrazu_ takové brněnské… Zorničky mají ti dva rozšířené, odvracejí se ode mě nesmyslní vzrušením, celý večer je nesmyslný vzrušením, políbím v rozpacích svého muže. „Proč nejsme doma?“ zeptá se. „Jsme přece doma,“ odpovídám. A je to zvláštní. Jsme totiž současně tady i tam. Finsky opilí.
 
-\* \* \*
-
-  
+* * *
 
 Je jeden jazyk. Miluji ho, miluje mě. Je to slovenština, jazyk emocí a nemocí různých. Nenávidím ho a stejně tak on mě.
 
-\* \* \*
-
-  
+* * *
 
 Je jeden muž. Jsme si už celé desetiletí lhostejní. Přesto si i po letech pamatuji jeho telefonní číslo. Jeho pohyby už neznám, snad cukání levého víčka a že stále leštil popelníky, jeho tvář si detailně nevybavím, jistá si nejsem téměř ničím. Jen to jeho telefonní číslo si pamatuji. Někdy číslo zkouším zapomenout, ale tím si ho zbytečně přivolám.
 
-\* \* \*
-
-  
+* * *
 
 Je jeden muž. Stojí se zlatým zubem na mostě poblíž stanice Möckern­brücke. Ta hra by se mohla jmenovat _Chytni si svého děda_. Když ho tam teď v zimě náhodou chytnu, vhodím mu do futrálu od tahací harmoniky drobné a on mi zahraje. Postojím, poslouchám a pozoruji kanál řeky, líné labutě, kachny v berlínské krajině. Most je zastřešený, zasklený, a tak i on, když hraje, je celý zasklený, zastřešený, klidný. Poslouchám ho a miluji, nechce se mi hnout. Také on pozoruje při hraní líné labutě a kachny. „_Vybral jste si, pane, krásný světa kout,_“ říkám mu jednou pateticky, když dohraje. A on se usmívá, zub se mu leskne, „spasiba,“ říká mi, „spasiba.“ Je to estetický dědo, je to dědo estetik, je rusky spanilý. Jeho osud mi není lhostejný, kdykoliv ho tam chytnu. Dokud hraje, neopouštím ho. A ani on, zdá se, neopouští mě.
 
-\* \* \*
-
-  
+* * *
 
 Je jeden muž. Miluju ho, je to náš berlínský řezník. Chodím k němu jen tak, na čumendu. Nabízí mně plecko a kotletu. Chodí tam hodně dělňasů. Je hodný. Pozoruju jeho tlusté masité prsty, jak jezdí po pipině masa. Je to pipina masa, říká se tomu _pipina masa_, ach, jak se tomu vlastně říká? Pleskni, pleskni mě, radím mu. „_Was wollen Sie?_“ zeptá se německy, ne, česky on neumí. A já že nejsem Ruska? A proč mám tedy na sobě kožich, he? To je dlouhá historie, ty kokotku, to je po jedné mrtvé, ty řezníčku detektive, říkám mu: řezníček a detektiv, no to tu ještě nebylo. „Polka taky dobrý,“ vysmívá se mi dál ta hodná mlátička. A zase se usmívá, jelimánek, jelítko boží. Maso je tam hnusné, sedí na něm mouchy, je to typická DDR-masna ve vymydlené čtvrti Berlína, brzy už zkrachuje. Nechci maso, říkám si, chci, abys mě rozkrájel, hlupáčku… „Echt? To je mě ovšem _echt eckelhaft_,“ říká. No ano, přiznávám, i mě je ta představa odporná. „Tak nic, zapomeň prosím na to, tak tedy tři párky.“ A když se venku nikdo nedívá, poskládám ty uzeniny způsobně, symetricky vedle popelnice, pro pejsky a krysy, dětem koupím lepší, bez namletých much. Zpátky domů se prodírám mezi policejními antony s davem demonstrantů, bojují proti zrušení squatů, bubny a tlampače, tleskání, jedno srdce, jeden dav, děsivý, agresivní průvod přestárlých levičáckých veganů, militantních ovesňáků, maskulinní nejistoty, feminní prázdnoty, třetí generace hipíků s kreditkami v kapse. Jen já jsem klidná mezi všemi těmi, netleskám a netančím, nebuším do bubínků, nekřičím, pevně se země nohama dotýkám, a je mi lehce; miluji si tiše svého řezníčka. Je to samotář, individualita, osobnost, pracant, nikdy by s tupým davem alternativních smradů nešel. Je to můj řezník. Řezník řezňácká. S krvavými fleky na vestě.
 
-\* \* \*
-
-  
+* * *
 
 Je jeden muž, miluje mě. Miluji ho. Je to můj muž. Všechno je v pořádku, odpočíváme. Zeptám se, zda by neměl právě teď chuť chytnout mě za pravou nohu a jemně mě vláčet po zemi. Mlčí. Pak tiše řekne: „_Neměl._“ „To nic,“ odpovím. A nenaléhám více.
 
-\* \* \*
-
-  
+* * *
 
 Je jeden muž. Miluji ho, nenávidím ho. Miluje se. Pohrdá mnou. Má pleš, trochu žabí tvář, byl by krásnou ženou, pokud by nebyl plešatou. Když se zadívá do zrcadla, když jde kolem výkladů, nebo třeba v bistru se zrcadly, a tam to obvykle bývá nejnápadnější, nezapomene se na sebe letmo pousmát. „Co je nápadné, může být i trapné,“ říkám mu v bistru se zrcadly. Kývne hlavou, pomyslí si, že už nejspíš zase mluvím. Nevnímá mě. Hledí na sebe v bistru do zrcadla. „Líbím?“ zašeptá si a šáhne mi pod stolem na koleno, pleskne se milostně do svého stehna, přežene to. Ne, nesmí křičet, ne tady a ne teď, ne s tímto výrazem, klid! „Líbím?“ zašeptá si znovu, klidněji už, vyleští si dlaní plešku. Nebo když si po ránu zkouší košile. „Sluší mně?“ ptá se a otáčí, celý se ke mně sklání, po krátkém ranním šukání, kterému se v karibských zemích říká „včelka píchne a odletí“; velmi závažně se otáčí, opravdu mu záleží na tom, co mu odpovím, dává si záležet na zdůraznění té prostinké věty, páčí ze mě tu odpověď hákem, protože tady nejde o maličkost, tady jde o prezentaci muže, který prezentuje, ne tedy lecjakého muže, ale muže muže, muže růže, mohl by být i prezidentem, škoda, že nebyl disidentem, mlčím, nakloní se ke mně… Mlčím, čas mi vypršel, dá mi ťafku, ubalí mi, docela malý políček vytne. „Ano, sluší,“ odpovím klidně a natahuju si na pohovce dál ty děravé černé punčocháče. „Kdy už konečně zajdeš na tu pedikúru, he?“ „Co furt máš?“ Odchází. „Té tvé košili to sluší,“ říkám prosebně, „té tvé košili to opravdu sluší,“ volám vyděšeně, aby se ještě jednou, aspoň jednou jedenkrát za mnou ohlédnul, než odejde. Vždycky se bojím, že odejde nadobro. Pokaždé si to přeji. Pěstuje v zahradě růže, nenávidí psí hovna. Ledabyle a koketně se ohlédne, „ano, já vím, že sluší!“ Je tak roztomilý, tak sametový! Zásadně nijak nesmrdí. Nepáchne. A tolik nenávidí psí hovna. Nejsem ho hodna. Zvláštní. Že mě to nenapadlo dřív.
 
-\* \* \*
-
-  
+* * *
 
 Je jeden muž. Něco si chceme, nevíme co. Tak jdeme aspoň na chvíli do kapucínské krypty, ve městě B., když prší. I v kryptě si něco chceme. Pak pršet přestane, potkáme v kapucínských zahradách otce s dospělou tlustou dcerou nad turistickou mapou. Myslím si, že jsou od Znojma a pěstují okurky, on ale říká, že z Valašského Meziříčí. Malá hádka o jejich rodný kraj. Pak se rozcházíme do těch našich. Už víme, že jsme si něco chtěli, něco, tam dole zavření v kryptě, nevíme však stále co. Je jeden muž, a je to kryptomuž, má rád, když dny jsou dlouhé, světlé a vlahé; ale kdo ví.
 
-\* \* \*
-
-  
+* * *
 
 Je jeden muž, muž z mého snu. Sen je to zpočátku vlídný, skoro meditativní, obec Světlá na Vysočině, pozdní léto. Pak však potkám toho muže. Říká mi: „Smutek je má loď.“ „Ale, ale,“ odpovídám, „vždyť tady není řeka ani moře.“ A on na to: „No _však_. No _právě_.“
 
-\* \* \*
-
-  
+* * *
 
 Je jeden muž. Miluje ho spousta žen, jmenuje se Jamie Oliver. Ve světově známém televizním pořadu o vaření jezdívá motorkou, traktorem a výjimečně létá i vrtulníkem na venkovské statky, pro bylinky a taky pro mléko, pro maso a vejce. Nejčastěji po Skotsku rajtuje, kde je krásná krajina mírných zelených kopců a černobílých krav. Je ženatý, miluje svou ženu a děti, ale já ho přesto m. spolu s milionem dalších žen od Santiago de Chile po Novosibirsk a on o tom snad ani neví, traktorem pro bylinky jede-li, za sebou znuděný televizní štáb.
 
-\* \* \*
-
-  
+* * *
 
 Je jeden muž. Je to popelář. Pozoruji ho z okna kuchyně. Močí diskrétně do sněhu u zídky ve dvoře, zatímco jeho braši v oranžových vestách berlínských veřejných služeb válejí popelnice, kutálejí je, kontejnery na kolečkách táhnou prudkými pohyby hlučně ze dvora ven na ulici. V kontejnerech jsou tříděné odpadky, ale taky nejspíš pár krys, nepoužitý lístek na vlak, dopis jedné ženy jednomu muži – nikdy neodeslaný, starý hřeben, použité plíny, šprcka, lampa a čísi fialová rtěnka. Mohla bych toho muže milovat? Mohl by on mě? Ale co je to za otázku, vždyť ho jen tak pozoruji, co je komu do nás, co je do nás _nám_? Vidím, že močí u kontejneru, do kterého jsem před chvílí vhodila igelitovou tašku s odpadky. Vidím, že močí a že po něm zůstane ve sněhu malá žlutá skvrna, der gelbe fluss, _žlta riečka_. A že někdo, kdo toho popeláře skutečně miluje, bude tu malou žlutou říčku láskyplně zkoumat. Pohledem ji polaská a občerstven odejde. Třeba jeden z brachů jeho. Nebo Asiat, Číňan třeba nějaký. V tom lepším světě. Tam, kde zpívá svoje hity _Antony (and the Johnsons)._
 
-\* \* \*
-
-  
+* * *
 
 Je jeden muž. Dnes se mi o něm zdálo. Je to a není můj pokrevní příbuzný. V tom snu ho ale miluji příbuzensky, vždyť je to nakonec strýko, dnes už starý Američan. Působí důvěryhodně, i když… Vzpomínám si, jak mě fotil, když mi bylo osmnáct, s jakým gustem mačkal spoušť u nich v domě na W. S.… Je jeden muž a je to takový ten muž, co k vám přijde, když máte nateklé oko, a celkem prostě vám oznámí, že dnes vypadáte _very very cute_, obejme vás a políbí. Je to a není cizí člověk. Není to však ani pokrevní příbuzný. Říká všechny ty věty a vy nevíte, zda je vůbec smí vyslovovat, když není pokrevní. Je to ale Američan, tak snad ano, snad ho optimismus bělocha v USA přesně k tomuto opravňuje. A právě o takovém muži se mi dnes v noci zdálo. Když dcerce spadla horečka. Sen to byl mírný a plný lásky. Jela jsem s ním autobusem po Manhattanu; cítila se milována, jen tak obyčejně. A sama jsem ho taky milovala všedně – láskou, při které se dá bezstarostně vyklánět z okýnka patrového autobusu, sledovat ruch města a vědět, že vedle vás sedí někdo, o koho můžete opřít hlavu, až vám bude klimbat únavou; někdo blízký a přitom neostrý. Rozmazaný muž, co je hoden měkké, bezbolestné lásky. Mužčina ze snově vyvolané, vlídné fotografie.
 
-\* \* \*
-
-  
+* * *
 
 Je jeden muž, neznámý dědo s foťákem. Plaše se pozdravíme, posadíme na stejnou lavičku. Nohy mu už neslouží, ale foťáčkem hbitě kmitá, fotí Staromák, vše z lavičky. Vyfotí i postarší pár, co kolem nás právě rozvážně prochází, manželé asi. Žena říká svému muži: „_Střílí to až do třísel._“ A on, důstojný muž v obleku: „_Nevysírej zase._“
 
-\* \* \*
-
-  
+* * *
 
 Je jeden muž. Mutuje. Má akné, knírek a je rozkročen přesně „mezi“. Jak to jen říct, má tenké chlupaté ruce i nohy, trochu ženský, špičatý zadek a triko s nápisem _Mano negra illegal_. Klátíme nohama v Arizoně na kandelábru, stmívá se, je mu čtrnáct a mně dvacet. Klátíváme nohama na kandelábru často. Vozím k jeho otci svou kamarádku, za město Tucson, pak ji odvážím. Ona ho – budoucí psychiatrička ze São Paula – miluje jungiánskou láskou, on ji unaveným temperamentem stokilového samce. Nám dvěma je v tomto čase vymezen prostor kandelábru před domem. Takový je náš svět v arizonském ovzduší. Zvláštní je, že nikdy neodejdeme, že vždycky sedíme před dveřmi toho dvoupokojového domku. A je to i velmi směšné, myslím si, směšné a trochu sprosté. Klátíme nohama. Občas si o mé rameno opře hlavu, občas si na prsty namotám pramínky jeho černých vlasů.
 
-\* \* \*
-
-  
+* * *
 
 Je jeden muž, mužíček čahounek na kandelábru, v arizonském ovzduší. Opírá si o mě svou čtrnáctiletou kudrnatou hlavu, zatímco jeho otec s mou přítelkyní šukají za stěnou domku… Skoro nikdy se na mě nepodívá, ale přerývavě vypráví. Vypráví, že mu matka kradla v São Paulu komiksy a měnila je za hašiš, že se rozhodl odjet k otci. Otec že je hodný, nemocný žloutenkou, ale jemu to nevadí, on se ho totiž zásadně nedotýká. Chtěl by být informatikem, rád lyžuje, a ne – nechtěl by být trapným ajťákem, spíš astrologem by se chtěl stát. Je taky lyžař, už mi to říkal? Kometa padá! Pak prudce zrudne, čistí si malý neexistující flek na riflích. Z baťohu vytáhne fotografii z lyžařského výcviku a neplatnou brazilskou bankovku z roku 1985. Ta je pro mě, i fotku mi dá. Je jeden muž, mutuje, je mu čtrnáct, a je v tom věku, kdy je rozkročen, jak to jen říct; jeho rozkrok je impulsivní, jedna noha sem, druhá tam, cosi ho svírá a dráždí, chytá rukou druhou ruku. A je v tom věku, kdy se čistí malé, neexistující fleky na gatích. Kdy se jí tak, že se chlapci málokdy trefí vidličkou do pusy, jsou-li pozorováni, kdy akné svítí proti padajícím kometám, kdy se hvězdy odrážejí v akné chlapců s knírky. Konečně vycházejí ven ti dva. Chci a nedokážu toho chlapce políbit, bolí mě pohled na jeho tvář. Přišel mi dnes od kamarádky ze São Paula dopis: „Do you still remember T.? Poor guy. Unhappy life. He is dead.“ Otevřu šuplík, hledám tu fotku. Je tam. Dívám se, jak T. lyžuje, jak stojí na lyžích, jak je tam uvnitř, napůl dítě napůl muž, jak se neklátí, jak se usmívá. Trochu. Napořád.
 
-\* \* \*
-
-  
+* * *
 
 Je jeden muž. Miluje mě, tyranizuje mě, miluji ho, týrám ho. Svátost v opakování. A je to jeden muž, trulo milovaný, okroužkoval mě, já jeho, je to jeden muž. Žijeme.
 
-\* \* \*
-
-  
+* * *
 
 Je jeden muž. Vyčítá mně, že miluju příliš mnoho. „Miluju tě příliš mnoho?“ ptám se překvapeně. „Ne, příliš mnoho _všech_,“ odsekne v kuchyni, kde si krájí mrkev. „Mohlas uklidit, mohlas mi krájet mrkev v uklizené kuchyni, ale ty,“ zvyšuje hlas, „ty místo toho si něco _píšeš_, protože ty – ty miluješ příliš mnoho _jich_!“ Líbí se mi, jak změnil slovosled ve větě, zní to vyzývavě… „Jsi milý,“ říkám mu smířlivě, i když už nevhodně asi. Šermuje mi před obličejem s nabroušeným nožem, útočí. Zrovna se byl proběhnout, atlet je to, sportovec, je muž můj sportovec, opičím se po něm už i ve slovosledu, tolik mě stále ovlivňuje, tolik já jeho m… „Tolik mě ovlivňuješ,“ říkám mu ještě. Čepel nože mi přidrží pod krkem, blyští se… „A máš tak velikou, krásnou mrkev…,“ šeptám ustrašeně… „Pověz mi, je to mrkev, nebo lilek, a copak je to tady, pohoří Ararat?“ Nadbíhám mu, žertuju, lechtám ho, ale nesměje se, vůbec se nesměje, je to vážné, trochu mě řízne do krku. Bolí to, jau. „Copak nechápeš,“ rozbrečím se konečně nad vší tou jeho kuchyňskou nenávistí s opravdovou lítostí, „copak nechápeš,“ sípám, „že po celý život, pořád a pořád ty? To ti říkám, to ti svědčím, to ti přísahám, to ti přiznávám, za to se ti v prsa biju, to ti zde v kuchyni před kastrůlky bezmocně lžu já. A to všechno proto, bys žil. Bys přežil. Bych přežila s tebou, a ty zase se mnou… Ty trulo jeden!“ zakřičím ještě odvázaně ze svého pokoje, ale nejprve klíčkem pootočím v zámku. Tak. Zase je klid. Klid se rozhostil. Udělá pár levelů. Napíšu pár dopisů. Je jeden muž, a je to on, je jeden muž a je to muž. No hurá!
 
-\* \* \*
-
-  
+* * *
 
 Je jeden muž. Miluje mě, miluji ho; když spolu jezdíme rychlíky a osobáčky. _Jinde_ si pochopitelně lezeme i na nervy. A ani s těmi vlaky to nesmíme přehánět. Maximálně jednou, dvakrát do roka. A nesmíme zvolit dlouhou trať, maximálně padesát šest minut. Vyprávíme si o filmech, hlavně o těch milostných, o smrti někdy, to podle nálady a počasí, občas mu levou rukou upravím na hlavě šedého už kohouta, upravit, ale nepolíbit, občas mi pravou rukou nabídne vdolek, nabídnout, ale nenutit! Projíždíme lužními lesy, v nich se milujeme, „nížina, jako převážně v Anglii,“ říká zamyšleně… Jednou jsme z okna osobáčku spatřili po poli jedoucí traktor, ozdobený jako kočár nebo jako rakev. Malá hádka o to, co to vlastně vidíme. V rakvi-kočáře-traktoru sedí dva moravští domorodci, novomanželé, drkotají polem dvacítkou, náš vlak je předjíždí. Nevěsta má bílé šaty, silnější ženskou figuru se závojem, a muž na hlavě klobouk. Je to tedy ženich, velká kulatá hlava, hlava kapusta, mohl by být autobusákem, ano, třeba tím slavným R. Smetanou z Olomouce. Venkovani tedy, ne však idioti. Jediné jisté po čase je, že jedou ze svatby, na kterou my z osobáčku _padesát šest minut_ nikdy nedojedeme. Tak aspoň naše společná radost a starost o ty dva, o jejich společný osud, poněkud výstřední, napadne nás po chvíli. Vystupujeme. Tak zase za rok? „Počkej ještě,“ osmělím se, „něco bych přece jen…,“ suché rty mírně olíznu, nadechnu se… „Ále, ne­otravuj.“ Mávne rukou a je pryč, jako by byl vzduch. Jaká je to úleva, jaká je to na nádraží stojící úleva, záchodky veřejné, láska ne. Líbí se mu film Tajnosti a lži, já ale tvrdím, že ještě hezčí je film Na vážno.
 
-\* \* \*
-
-  
+* * *
 
 Je jeden muž. M. ho, m. mě. Když ze spánku vyslovím jeho jméno, nikdy se nespletu. Je jeden a je dvojí. Je to i prostinké a je to i tajemné.
 
-\* \* \*
-
-  
+* * *
 
 Je jeden muž. Nezná mě. Miluji ho vlastenecky. Vlastenectví vnímám jako osvobozující, čas od času čistě fyzický akt; už delší dobu žiju mimo vlast. A je to on, řidič autobusu a tykadlový hrdina letmo zachycený v předminulém záznamu, ten, co o něm byl natočen jeden film. Zdál se mi o něm včera sen. Jela jsem do rodiště svého muže. A v tom rodišti nečekal můj muž, ale řidič autobusu R. S. Čekal s trolejbusem a říká mi: „Jasně, rozumím, tvůj chlap, já ťa k němu dovezu rád, vyhrň si sukňu, ať sa ti o podlahu nezafláká, nasedaj.“ Tyká mi tykadlově, napadá mě. Stojíme pak s trolejbusem u městské nemocnice, zřejmě konečná, chci za mužem, ale dopředu tuším, že zbloudím. Zbloudím, cítím to v kostech, prsa mě tlačí k prasknutí; napadne mě v tom snu, teď už skoro detektivním, že pomalu a jistě ztrácím _tykadla ostražitosti_, a že je to i duchaplné. Ale komu to sdělit? Napsat esemeskou?! Co vůbec s tím teď a tady, s těmito pocity, s duchaplností nevhodnou, a s tímto fyzicky průměrným, zato opravdovým řidičem a opravdovým člověkem, jak by se řeklo v Rusku. Pasažéři vystupují, samí dědci a báby, vystupují, „nasledanou staříčku,“ klaní se jednomu z nich. _Ajto automatikus_ se maďarsky zavírá, v dálce zahřmí, blíží se bouřka. „Tááák…,“ natahuje dráždivě situaci, „máš ty vůbec ňáký drobný?“ A zase mi drze, mile tyká, ukazovák si přiloží k levému spánku, první kapky buší do oken… „Samozřejmě, že mám, nate, nate, vemte si to tady, všecko si to tady vemte,“ odpovídám, a jak se natahuju pro drobásky, jak je vytahuju ze záňadří, vyvalí se najednou obrovitánská prsa přes okraj jeho řídicího pultu. A fíha, páni! Tak to je něco, to je podivuhodné a taky děsivé, vždyť jinak mám prsíčka „plivnout a potáhnout“. Vyvalí se ty mé najednou obří cecky přes okraj jeho sedadla, jako v nějakém mně neznámém pornofilmu. Proudy vody se valí po trolejích, kulatá hlava se zmítá v mém klíně, jeho pták je tvrdý a žalud naběhlý k prasknutí, troleje pohlaví nám jiskří. Jedeme a svítíme… Kdybys tak byl býval černochem z Olomouce – zapíšu si ráno do deníčku, a říkám svému muži později u snídaně – to by byl teprv filmeček o tobě, kdybys byl černochem, to by byla teprve bomba. Bomba zkorumpovaným politikům do chřtánu, směju se, rána všem náckům, levičákům a pravičákům přímo mezi oči, směju se bláznivě. Děti se přidávají, bryndají čaje. A nakonec, plácám dlaní do stolu, vždyť je to jedno a to samé – pravice, levice, marxisti, fašouni – ukaž mi mezi stovkou politiků jednoho jediného čistého idealistu. A nebude tam, protože takoví, takoví žijí jen za branami cvokáren… Z očí mi tečou slzy smíchu, jsem angažovaná, tak nezvykle, nepřirozeně uvědomělá, pro vlast bych se přetrhla… „Taťka není černoch,“ přeruší mě dcera. „Není čelnoušek ani opička,“ přidá se mladší. Muž však dnes vypadá po ránu sklesle. Mezi zuby nerozkousnuté sousto chleba s máslem. Také dětem se to nejspíš zdá. Jsem dost možná trochu mimo.
 
-\* \* \*
-
-  
+* * *
 
 Je jeden muž. Je to můj muž, trulo takový, miluji ho kratochvilně. Ptám se, zda by neměl právě teď chuť chytnout mě za pravou nohu a vláčet pokojem. „Abych ti usnadnila práci,“ říkám snaživě, „nesundám si šaty, bude to po parketách líp klouzat. Tak chceš? Chceš?“ „Nechci,“ odpovídá jemně s pohledem upřeným do země. „To nevadí, tak dobře,“ říkám a nenaléhám více.
 
-\* \* \*
-
-  
+* * *
 
 Je jeden muž. Miluji ho. Odjíždím za ním žít. Čeká mě na malém venkovském nádražíčku s kolem, stojí tam jako rozený domorodec, levou nohu opírá o kolo. Je sklonek léta. Vystupuji z motoráčku a obřadně, unaveně se přivítáme. Špatně se nám dýchá, nejsme nejmladší, dohromady je nám kolem stovky a venku je přes třicet stupňů ve stínu. Vítáme se polibkem, cítím, že nám kysele páchne z úst. Je mu to jistě i nepříjemné. On si svá ústa, když promluví, obyčejně zakrývá dlaní, protože u sebe nenosívá _chewing gum_, jak je tomu běžné například u mladších ročníků. Teď zapomněl na všechno, o kolo se opíraje. „Proč máš s sebou kočárek,“ zeptá se třeba, „máme snad spolu už dítě?“ „_To nic_,“ říkám mu, „_to jakaby kdyžby takžby tolik zítrazítra tam…_“ „Aha,“ řekne a odmlčí se. Dál jdeme vsí mlčky. On vede kolo, já golfový kočárek, v kočárku sedí mé zavazadlo. Je jeden muž a je celý zachmuřený říká-li: „Brzy bude pršet, a také venkovani zde, jsou tak pracovití.“ A pokračuje, že je mu líto, jak on jim s tím svým věčným kolem a pohledem zavazí, vycítil to a je z toho smutný. „Tak já jsem teď za tebe taky smutná,“ říkám mu, abych ho podpořila, vždyť ho miluji.
 
-\* \* \*
-
-  
+* * *
 
 Je jeden muž. Miluji ho. Odjíždím za ním žít a on mi ukazuje náš dům. „Konečně jsme tady,“ říká měkce. A já vidím, co vidím. Je to dům zabydlený kýmsi jiným s láskou, pečlivostí a důslednou tupostí pořádkumilovných. V zahradě například maliny až vzadu u plotu, zato cypřiš a středomořské kameny, ty se tu rozvalují uprostřed městsky posekaného trávníku, v chalupě nová plovoucí podlaha, koupelna vulgárně oranžová, a v přední světničce, hanba povědět, z okénka pohled na tělocvičnu, pohled nevlídný až trpce zlý, výsměšný ke zbytku domečku, který by chtěl být tolik venkovskou chaloupkou. Všechno je praktické, až to bolí, ústřední topení, v koutku nevkusný elektrický krb, strhující číslo obydlí. A copak je to v té zadní místnosti? Tam malé smutné okénečko a to vede do zahrady, kde trůní zase jen ten cypřiš. Jdeme před chalupu, hlavy skloněné. Tady máme žít? Vezmeme do rukou badmintonové rakety. Ale co to vlastně je, ten náš život? Náš život je badminton. A badminton, ten dokáže vyřešit i smutnější případy, než jsme my, program oběšenců ve věznicích třeba, mohou-li si zapinkat. Ano. Budeme si chvíli pinkat, nezávazná rekreace, zapinkáme si. Zvedá se však protivný vítr. Blíží se studená vlna a my to víme. „Hle, pojeďme k řece, je tady pěkná řeka, nížiny, roviny, polí lány,“ zvoláme oba současně. To je nápad! Tleskneme si do dlaní. Jedeme k řece. Bojí se ale, že spadnu z kola, co by si se mnou počal, mám vůbec s sebou zdravotní kartičku? Zase ta jeho ustrašenost. Jedeme, prší, úplná průtrž mračen, kola jsou nám malá, vypadáme na nich komicky, klátíme se; naše těla jsou si podobná až příliš, musím přibrat, napadá mě. Jedeme bahnem podél rozvodněné řeky, a vítr je tak prudký, že cokoliv řekneme, ztratí se ve větru; mám už i hlad. Nakonec možná přece jen spadneme do bahna. Špinaví budeme, špinaví, a jinak nic, snad se příliš nezraníme. A naše společná špína nakonec vyřeší celý dnešní problém, celý život, a možná i životy všech generací před námi a po nás.
 
-\* \* \*
-
-  
+* * *
 
 Je jeden muž. Stále TEN muž. U vody jíme v hospůdce, nemají však žádné teplé jídlo, sním tři tyčinky Margot, jednu i za něj, daruje mi ji, je tolik pozorný! Dáme si pivo, do řeči s lodivodem se dáme. Lodivod si nás prohlíží, kdo jsme, kým jsme, jsme nečitelní. Příbuzní, otec s dcerou, kdo se má ve zmoklých vyznat? Tak třeba on je Laďa a profesí elektrikář, přes léto lodivod, férový chlap. A my v roli výletníků? Výtečné. My žádní venkovani, ani z města ne, ani z vesnice, ani ze severu, ani z jihu, ani z východu, a jako švýcarští tenisté taky nevypadáme… Tedy výletníci? Kolegové z kulturáku? Pěkně vypečení jsme, ale o tom férový Laďa nic neví, řekl by, že je mu do toho kulové. Z toho, že žijeme v této vsi, na nás dosud neulpěla žádná stopa. Zatajíme to tedy, neboť my stále něco tajíme. Náš zdejší život třeba, který je pomalu u konce, který byl a nebude, přestože je to tolik smutné, protože se milujeme, opravdu, miluji ho vroucně. Je večer, musíme domů, zchladlí vlhkým vzduchem. Večer si pustíme rádio, k večeři bramborová kaše s česnekem, dojímá mě způsob, jakým mačká brambory – pečlivý, velebný způsob řeckokatolického ritu. Rádio. Konečně se uspokojíme, zklidníme pod tlumeným světlem lampy. Oblékne si tepláky, vypadá v nich jako bývalý hardcorový zpěvák na misii ve třetím světě. Nejstarší žijící česko-americký filharmonik požehná v půlnočním pořadu krátce i našemu spojení, vypráví zeširoka o našich duších. A zatímco filharmonik mluví, vytopím omylem koupelnu vodou. Vytíráme potopu společně hadrem, to nás ještě více přimkne k sobě, a ta mechanická činnost nás současně dokonale uklimbá. Tatínku, maminko, půjdeme spát? Hezky se nám v peřinkách spinká, máme se hluboce, znuděně už rádi. Ráno se za deště pomalu, rozvážně rozejdeme. Předtím je v rádiu Klapzubova jedenáctka, nesmím ho rušit, a tak si čtu. Vyruší nás až soused, schovám se pod peřinu, nebudu se tvářit jako hospodyně, vždyť nemám napečeno, nemám. „Toš si měl kurňa řícť, zaklepaľ bych,“ říká soused rozhlížeje se drze po světnici; v nestřežené chvíli mě štípne do stehna. Pak se ten obrýlený vysmívá mému muži, co právě vyhlíží ranní stav cypřišů z plovoucí podlahy světničky. Náš svátek manž. trvá bezmála osmnáct letních hodin. Pak zhyne jako pampeliška. Zhyne-li však pampeliška v němčině, zbude z ní _pusten­blume_. V češtině ale pro bílé pampelišky neexistuje slovo. Nebo říká se jim _křehké mrtvolky_? Opustí mě, odpustím mu, opustím, vyhledám, odpustím… Miluji bližního svého.
 
-\* \* \*
-
-  
+* * *
 
 Je jeden muž, bydlí v domku u trati, miluji ho a vím, že dál musí žít sám, možná nemusí, možná ani nežije, rozhodně však nesmí žít se mnou, přinesla bych mu jen samé neštěstí. Snad i on mně, ale ne tolik, to spíš já jemu bych… Žije v domku u trati, střecha domu je rovná, nenávidím rovné střechy, a přesto je to krásný domek, drážní, uprostřed obilného lánu, a trať ještě pořád příjemně daleko. Zleva nížina, zprava hory, zahrada oplocená zeleným drátěným plotem. Také v zahradě je obilný lán, uprostřed pěšinka, vede přímo ke dveřím domku. Takovýto život jsem mu vždycky přála, takový úhled­ný, letní, lehký život. Konečně je narovnaný, vyžehlený, konečně příjemně starý, je takový, jakým si on sám přál po celý život být, do jeho zahrady svítí slunce a taky občas zaprší, podle nálady, na zahradě nějaké ty židle, stůl, limonáda, rozházené knihy. Má taky ženu, hospodyni, kuchařku, pečovatelku, milenku, děti nějaké. Jeho život je rovný, i to jeho obilí je rovné, všechno je symetrické, nepije a nekouří, klidný je jak buddha, nemusí se bát, a ani já nemusím mít o něj strach, nespadne, nebude ho třeštit hlava, snad ani srdce bolet, neumře. Mohu ho z dálky dál nerušeně milovat. Milovat a letmo pozorovat, budu-li právě sedět v osobáčku projíždějícím jeho krajinou, mohu ho vyhlížet, mávat mu oběma rukama, a do toho, co budu cítit, nebude nikomu nic. Mohu mu neubližovat. Nebude mě muset mučit.
 
-\* \* \*
-
-  
+* * *
 
 Je jeden muž a je to Ježíš. Nikdy jsem ho neviděla a přitom je všude. M. ho. Má láska k němu je konvenční, opatrná, bázlivě erotická. Co přesně cítí on ke mně, nevím. Ale myslím, že snad ano, že i on někdy v letní noci, když je sám a horko neustává…
 
-\* \* \*
-
-  
+* * *
 
 Je jeden muž, bydlí u nás v domě, jmenuje se Harald Mylord a jsme si dokonale lhostejní, ačkoliv má tak krásné jméno, na které se ho jednou v chodbě domu zeptám. Malou dcerku držím pevně za ručičku, kdyby ji chtěl snad za tu neomalenost kousnout. On ale jen plaše zrudne a říká nám, že jde o _naprosto_ běžné německé jméno. A pak se i se svou přítelkyní nečekaně odstěhuje. Abychom si i nadále zůstali dokonale lhostejnými. Abych se ho už nikdy na nic nezeptala. Abychom si beze stop zmizeli z našich životů.
 
-\* \* \*
-
-  
+* * *
 
 Je jeden muž, a je to můj muž, a není o něm neznámé, že miluje hygienu. Je skoro ráno, jsem těhotná, zase už moc. A tolik si musím ulevit, snažně ho prosím, klepu na dveře koupelny, za kterými on, ale neotvírá. „Musíš počkat,“ volá na mě. Mám strach, že to nevydržím, bude to jako minule, všechno mokré. Myslel by si, že teď už je to schválnost, tohle by vyvolalo jen nesmyslnou vlnu odcizení, lhostejnosti, ba dokonce nenávisti. A tak se vplížím do kuchyně, zatím nemám konkrétní plán, ale ano, zavařovačka, to půjde, ufufúúúf… Ale co s tím, co když mě přistihne, jak tady s plnou zavařovačkou tancuju? Co když si pomyslí, že podnikám za jeho zády tajnou urinoterapii, jak mě pak bude i nadále milovat, důvěřovat mi, a jakýpak z něj asi bude tatínek? Plížím se potají do ložnice, otevřu okno. Ulice je prázdná, tma, mráz, sníh a žádní chodci. Plesk. Obsah zavařovačky vyleju z okna do mrazivé zimní noci na chodník; zavařovačku pečlivě zavřu a tiše skutálím pod postel. „Už můžeš!“ volá a splachuje. „Už je to v pořádku,“ odpovím. „No, to bylo povyku pro nic,“ říká. „Odpusť mi.“ „Dobrý.“ „Opravdu mi odpusť.“ „Neomlouvej se pořád!“ V mrazivém ránu vedu dcerku do školy. „Maminko,“ raduje se holčička, „podívej, jak je ta klouzačka krásně žlutá!“ Sklouzne se a upadne. Zvednu ji a smějeme se. Život je někdy takový.
 
-\* \* \*
-
-  
+* * *
 
 Je jeden muž. Miluji ho houževnatě jako nějaká housenka. On spíše prchá a já mu to nijak nezazlívám. Prchá, honím, a honí-li mě, prchám. On mě ale, to musím přiznat, už vlastně vůbec nehoní. On jen prchá, musí-li. Nezazlívám mu to. Miluje mě esteticky, je to láska asketického atleta, co běží k cílové rovince, tam někam na sever, tam stále na sever, běží a běží, aby neviděl, jak moc ho chci u sebe zadržet, protože nechci; nechci, aby tím vším proběhl příliš rychle. Aby zmizel. Protože tam za cílem, tam už není nic. Ani ti sobi ne. Jen zima, tma a zima.
 
-\* \* \*
-
-  
+* * *
 
 Je jeden muž. Miluje mě houževnatě jako nějaký bobr. Milují bobři houževnatě? Myslím si, že ano. Jak by jinak stihli tolik klacků okousat? Honí mě, prchám. Nezazlívám mu to. „Prchej, má nedostižná,“ volá na mě dětinsky. Prchám, honí mě, ohlédnu se soucitně a on na okamžik zmizí. Spatřím-li však v dálce jeho předkus, vzrušeně vybíhám zpět na trasu, fuj, bobře, fujtajksl, bobře jeden otravný, odplivnu si zhnuseně a běžím zase dál.
 
-\* \* \*
-
-  
+* * *
 
 Je jeden muž a je to můj muž a běžíme spolu až na ten železniční most, a tam se na okamžik někde vprostřed setkáme a zastavíme, tam se milujeme, tam se nadechneme a jsme zase na chvíli spolu, tak úplně a spolu; jako rybář s rybářkou, jedno tělo, jeden dech. A pak se zase rychle rozprchneme. Já na jeden, on na druhý břeh Sprévy; my čtyři rukavice boxerské.
 
-\* \* \*
+* * *
 
-Aha, tak vše je jinak. Esterákova dcera prý nemá syna, ale dcerku.
+_Aha, tak vše je jinak. Esterákova dcera prý nemá syna, ale dcerku._
 
-\* \* \*
-
-  
+* * *
 
 Miluji ho, nenávidím. Je to jeden muž. Říká si Macho. Tvrdí, že nemohu, že prostě nemohu psát s knírkem a v růžovém negližé. Miluje mě a nenávidí. Dále miluje celou svou rodinu, své auto, rodinné auto, rodinné zlato, veškerý rodinný majetek, dalo by se říci, několik příležitostných akcií, svou práci v odpudivém kolektivu – v němž vyniká, ženy i muže – co ho milují, pravici, samotu, tajně i poezii a levici. A kočičí zlato na svém tlustém krku s voletem.
 
-\* \* \*
-
-  
+* * *
 
 Je jeden chlapec, ráda bych ho milovala, ale on není. Tak se jím chci stát, chtěla bych ho milovat. Berlín–Praha EuroCity, pak rychlík do Veselí nad Lužnicí a pak už motoráčkem. Tam myslím na to, jak by bylo hezké narodit se jako chlapec. Jistě bych byla krásný chlapec, promýšlím to do všech detailů, jakou chůzi bych zvolila a zda bych nosila takové ty trochu tlusté řetězy z kočičího zlata (asi kdybych měla malého ptáka), nebo zda bych spíš byla evangelíkem a jako takový hrála v nějaké umírněné kapele na kytaru a lovila v řadách evangelické mládeže; dost možná bych byla tramvaják bez ambicí, ale ze všeho nejraději nějaký ten manipulativní typ, třeba mladý předseda nějaké progresivní strany. Pak je mi ale za Planou nad Lužnicí nečekaně prudce líto změny pohlaví, necítím se dobře, v kupé je dusno, potím se, a nakonec si představuji před zastávkou Počátky-Žirovnice, že bych ve svém věku už nebyla ani chlapcem, ale nejspíš mužem s lysinou a problémy středního věku, a tak to celé přehodnocuji a zavrhuji, ahoj chlapče, ahoj; někdy jindy, později.
 
-\* \* \*
-
-  
+* * *
 
 Je jeden muž a je to mladý drobný Maďar z Pešti. Maďar tanečník. Potkáváme se v únorových ulicích Krossener, Seume a někdy i Gärtnerstrasse, tam ale děláváme, že se nevidíme, není to v našem teritoriu. Nejčastěji se však potkáváme v chodbě našeho domu. A když se potkáváme v chodbě našeho domu, vždycky do sebe vrážíme. Ať se vyhýbáme jakkoliv, vrážíme do sebe. Chodba je úzká, vrážíme do sebe; nepříliš prudce, ale přece jen. A je to i divné. Všelijak zaklesnuti, atavisticky, ruka do oka, loket do ušního bubínku, rty o koleno. Habsbursko-monarchisticky se o sebe opíráme; pak se vzájemně omlouváme, vysvětlujeme, obhajujeme. Chystám se ho pokaždé zeptat, jak je možné, jak je to proboha možné, takto do sebe strkat. Vždyť on je tanečník, a ne žádné nemehlo; a ani já nejsem snad ještě tolik vratká. Ale kdykoliv se nadechnu, vysloví on: „Muss ich leider schon, mein Geliebter wartet auf mich!“ „Ano,“ odpovím. Podaří se nám zachovat korektní sousedské vztahy. Chodba se vrátí do původní dimenze. A je to tak i dobře.
 
-\* \* \*
-
-  
+* * *
 
 Je jeden muž v kostymérně berlínského divadla. Je to Ital. Je to žena. Žena, co mě miluje, a možná mě nemiluje, ale dívá se na mě po premiéře opery Carmen jako muž, který mě miluje. Všimla jsem si jí už v hledišti, šmírovala mě. Jde za mnou ke stolu s ústřicemi, promluví basem. „Slušely by ti červené šaty.“ Popíjím víno a ona whisky. Kde právě vězí má přítelkyně, tanečnice J.? „Přeměřím si tě,“ říká. „Musím si tě celou změřit.“ Ano, je výtvarnicí, šije kostýmy, i do tohoto post­moderního kusu navrhovala, něco i šila, ano… Zavřu oči, opravdu má bas, hluboký italský bas římského trhového zpěváka. Je vulgární i něžný, celá je vulgární i něžná v té své černé tvrdé kůži. Přeměřuje mě, nejprve z dálky, pak se mě zlehka dotýká, krk, pas, ramena, prsa, boky, kolena… „Takto mě vždycky měřila maminka, když mi šila,“ pípnu, piju víno, sama mi ho nosí, ale děti víno nesmí pít, chce se mi protestovat. „Tak maminka,“ zazubí se pobaveně, „tak maminka, he!“ Ten hlas mě uklidňuje, ten hlas já odkudsi znám, z nějakého pradávna. Říká mi: „Teď se chvíli nehýbej, držím v ruce tři špendlíky, to by tě moc bolelo, a _výstřik_, chtěla bys taky _výstřik_?“ _Výstřik_? Lekám se, nejsem připravena na takovou věc. Do zákulisí vchází v tu chvíli tři ruští kozáci, operní pěvci, rovnou ke stolu s nakládaným mangem. Nerozumím slovu _výstřik_, jsem cizinkou, proč a v jaké souvislosti používá takové slovo? Chci domů, domů. Aha, _výstřih_ myslela. „Otoč se,“ říká, a já se poslušně otáčím. Ještě stále si mě přeměřuje, no ne, teď už mě bezostyšně osahává, nonono, cožeže, tytyty!!! Kozáci se něčemu hlasitě zasmějí. Onono mě dál osahává, ohoho, ošošo, bachacha, lechtá to… „Půjdeme ke mně do ateliéru, right now,“ nařizuje mi, „ráda bych dokončila svou práci.“ Tak ona by ráda dokončila svou práci. Aha. Tak ona na práci teď myslí si… Najednou nás spatřím očima přítelkyně J., co postává u dlouhého stolu s kaviárem a mangem, jsem přítelkyní J., a pozoruji nás. Jsem jejím tělem, mám její oči, přeměřuji si nás a je to pikantní, ano velice pikantní, i když ano, v berlínském divadle je možné všechno, nic na tom není, nebuďme konzervativní maminky, nechovejme se jako Polky před biskupem, je to směšné, myslím si očima přítelkyně J., opravdu strašně směšné. Směšné to nebylo, jen divné, říká mi však přítelkyně J., když ujíždíme na kolech nocí do svých domovů.
 
-\* \* \*
+* * *
 
-Ano, byl to dobrý nápad, tvůj a Esterákův – Uherákův, z okna své kuchyně téměř mávám jeho dceři, co svačí v okně své kuchyně, tam, v prvním patře. Za to tě nikdy nepřestanu m… Až bude textů šedesát šest, protože to je takové milé a jen trochu ďábelské číslo, budu hotova. Ale co když úkol nesplním? Kde brát stále nové a nové muž. kusy?
+_Ano, byl to dobrý nápad, tvůj a Esterákův – Uherákův, z okna své kuchyně téměř mávám jeho dceři, co svačí v okně své kuchyně, tam, v prvním patře. Za to tě nikdy nepřestanu m… Až bude textů šedesát šest, protože to je takové milé a jen trochu ďábelské číslo, budu hotova. Ale co když úkol nesplním? Kde brát stále nové a nové muž. kusy?_
 
-\* \* \*
-
-  
+* * *
 
 Je jeden muž. Je ošklivý jako noc… Tak víte co, já o něm psát nebudu. Přistihuji se vždy při jakési estetofobii… Ne, nebudu, nezlobte se. Je hodný a díky své fyziognomii bohužel i zákeřný, nechme ho být.
 
-\* \* \*
-
-  
+* * *
 
 Je jiný muž. Jeden to muž na úřadě práce. Tak dobře, o něm psát taky nebudu.
 
-\* \* \*
-
-  
+* * *
 
 Je jeden muž. Není mi lhostejný, když kráčím po jednom berlínském mostě, nejsem mu lhostejná, když kráčí lázeňskou promenádou v rakousko-uherské monarchii. Když spojeni jsme týmobajlem, boule nad hlavami a v nich komiksové věty. Naše řeči jsou transcendentální, tragistátní, mezisvětové, míjíme chodce na mostech i promenádách, s úsměvem je zdravíme, s úsměvem je míjíme, s úsměvem si jdeme každý sám, z cesty si jdeme, dvě bubliny s týmobajlem, v milostiplném osamění.
 
-\* \* \*
-
-  
+* * *
 
 Je jeden muž, říká mi po ránu v kuchyni, že mám po sobě okamžitě umýt umývadlo, do kterého jsem flusla… „Jinak co?“ ptám se a bradu vystrčím bojovně dopředu, „jinak mě už nemiluješ?“ Říká mi: „Já tě miluju a klidně na tebe skočím, ale musíš teď hned umýt to zasraný umývadlo!“ Tak dobře, ale je to naposledy, vždyť láska, to je přece něco vyššího než takové bohapusté sexistické vydírání sprostou domácností, láska, přemítám tiše nad umývadlem s houbičkou v ruce, láska _má zármutek, když se dělá něco špatného (když se třeba musí umývadlo umýt, aby se mohlo milovat), ale raduje se, když lidé žijí podle pravdy (Tohle je tíživé, ale co je to vlastně? Je pravdou tato kniha? Vždyť pravda je prázdnou formou, jen uniformou.). Láska všechno omlouvá, všemu věří, nikdy nad ničím nezoufá, všecko vydrží (tohle je radost číst)_. Jdu svou Korintského biblickou znalost věci předat muži. Musí se přece zkultivovat, musí to procítit, tak jako já. Vracím se s houbičkou v ruce, nadechuji se… „Umylas?“ „Umyla.“ „Tak dobře. A teď vysmahni, práce volá.“ Sáhnu mu letmo na ptáka. „Zažaluju tě a budeš bručet,“ řekne generál. Umývadlo se však leskne čistotou. A on je myslím rád.
 
-\* \* \*
-
-  
+* * *
 
 Je jeden muž. Jsme si lhostejni. Možná si nejsme tak docela lhostejni, možná jsme si dokonce trochu nakloněni, i když si nerozumíme, vůbec si nerozumíme, slovy se míjíme. Jsme si nakloněni, protože stojíme na šikmé plošině, stejně jako je tento předměstský hotel postaven na šikmé plošině, a jen co vypijeme trochu alkoholu, je hotel nakloněn dokonce i nám, letní doba je nám nakloněna, přepracovanost, únava našich mozků, vedro hotelu a pot; vše se to kolem i v nás kymácí mírnými seismografickými otřesy a háže nás to těsně k sobě, vzbuzuje vzájemnou náklonnost, důvěru a úctu vedoucí ovšem jen k prachobyčejné představě společného sexu. Jdeme noční ulicí. I ta je nám nakloněná, ta ulice, ve které se za chvíli otevře uzenářství pro dělňase, jdeme do ošklivého nonstopu, ještě s jedním mužem, i k tomu se nakláním, je to ovšem solidní člověk, stabilní, nakláním se mezi oběma muži, nalevo a napravo, chci jít však rovně vpřed, vždyť je oba sotva znám… V nonstopu zpíváme s karaoke, raději bych Mládka, ale dobře, ať je po jejich. Pak ale ti dva objeví v rohu nonstopu obrazovku s laciným porno-videem, hlasy jim přeskakují, kroutí se, jako by se potřebovali vyprázdnit. A já jsem v tu chvíli co? Barmanova cigareta za uchem? Také občas něco zvolám, ale nejsem to já, kdo volá, jsou to má ústa, do kterých ta jejich vstoupila. Říkám jim: „Jsem jedním z vás. Jste rádi?“ A je mi přitom tolik cizí to jejich radostné šmírování cizí bídy, kohouti pitomí, blbečkové. Skutálíme se z nonstopu na ulici. Teď už i auta jezdí zšikma. Ten solidnější jde spát, ten druhý, co je mi už zase zcela lhostejný, se však naklání stále více mým směrem, prudce a nečekaně se naklání, před námi ranní fontána unaveného městečka. Stiskne mi razantně pravou půlku zadnice opřené o kovové zábradlí. Drží na ni tu svou z nonstopu upocenou dlaň a vede řeči. Tak třeba: „Je v tom laku zábradlí skutečně jed?“ zeptá se nelogicky. Auta jezdí za ranního mžení čím dál pomaleji, vše je v akvarijním, mlžném pohybu. Jsme si stále nakloněni, snad i prudce nakloněni. A tolik, tolik lhostejni.
 
-\* \* \*
-
-  
+* * *
 
 Je jeden muž na úřadě práce. A je to dobře, že tam je. Pracuje tam. Ostatně nic jiného ho nemusí tížit. Tak už je to zařízeno pro ty, co pracují ve státní správě. Nemusí ho například tížit, že nepracuje na úřadě. Nerada bych mu křivdila, ale je strašný. Nutí mého muže vyplňovat lejstra, kterým nerozumí, nutí nás oba pracovat na těch lejstrech, v cizině, nutí nás být skleslými tam, kde nejsme doma. Sám přitom vypadá jako někdo, kdo v životě skleslost nezažil, kdo v životě byl jen doma, neboť úřad je mu domovem. Chtěla bych žít na venkově a mít dvanáct dětí, říkám svému muži, když opouštíme úřad a pomalou berlínskou procházkou kráčíme podél kanálu řeky, ruku v ruce. Muž se měkce usmívá: „A podívej, není támhle pod mostem dokonce i bobr?“
 
-\* \* \*
-
-  
+* * *
 
 Je jeden muž. Všechno dělá halabala. Halabala se oblíká, halabala žere lžičkou, nestravuje se zdravě, ale halabala, samé sladkosti, v jeho věku, halabala to jídlo vybryndá na světlé plátěné košile a fleky si neumývá, směšný je k pláči, špinavé nehty, halabala vyslovuje, takže je mu občas sotva rozumět, kozu dojí halabala, slepice si nechá ukradnout, protože plot, který postaví drůbeži, stojí jen tak, halabala. Všechno miluje napůl, svou rodinu, ženu a děti; i sebe miluje napůl, své pravé dny a noci schovává pečlivě pod dekou halabala zmuchlanou, jako by si myslel, jako by věřil, jako by doufal, že tohle je jen zkouška a po ní přijde ještě jiný, opravdový, zodpovědně vedený, v bdělosti prožívaný život. Miluji ho a nenávidím, nechci se v jeho roztrhaných plátěných košilích nikdy spatřit, přivírám prudce oči proti jeho plátěným košilím a vídám pak v dírách plátěných košil kusy sebe samé, ale jen tak, halabala roztrhané, kusy svého těla doufajícího, že já ne, že já ne, že mě se to netýká, i když jsem sestrou jeho.
 
-\* \* \*
-
-  
+* * *
 
 Je jeden muž. Je to Ježíš a není to Ježíš; je to herec divadelní scény, který se za Ježíše vydává. Hraje Ježíše o Velkém pátku ve městě B., když sněží. Má pružné tělo asketického atleta a nepříliš dobrý herecký projev. Na zápěstí levé ruky slabou tetuáž, roucho z bílého prostěradla, pod ním trenýrky, sympatická prostota, zřejmě OP Prostějov. V pondělí se pravděpodobně vydá na mrskut a zmrská herečku, co hraje v pašijích Máří Magdalenu a nejspíš i Marii pleskne za vajíčko. Slova monologu občas splete, podle krátkého přízvuku a prudkých gest pochází ze severní Moravy. Hraje, jako by spal, napadá mě, jako by byl ještě někým jiným než hercem a Ježíšem. Ale možná, že přesně takovým by současný Ježíš byl: trochu fejkem, trochu hipstrem, trochu barmanem s hereckými sklony. Přesto se cítím po pěti minutách podvedeně. A když se mě herec zeptá: „Copak nevěříš, že jsem skutečný Ježíš?“, odpovím, že je hercem, který se za Ježíše vydává. „Nevěříš v Ježíše,“ interpretuje vulgárně a já se konečné z první řady přestávám soustředit na fyzickou blízkost jeho trenýrek; má už teď trochu mrzutý výraz ve své chlapecky krásné tváři. Tento dialog nemá cenu, pomyslíme si vzápětí oba a odvracíme se od sebe na zbylých sedmdesát minut. Jiným divákům omývá nohy, jiné divačky oslovuje a raduje se z jejich studu. I já jsem plná rozpaků, tohle jsem přece nechtěla, takový konflikt, nechtěla jsem ti ublížit, herče. Slibuji si, že až se mě znovu zeptá, budu taktně mlčet. Ale on se mě nezeptá, už na mě do konce pašijí nepromluví. Při Poslední večeři o mě okem nezavadí, je to tedy nejen herec, co se vydává za Ježíše, ale i Ježíš, kterému je minimálně jedna lidská bytost v hledišti dokonale lhostejná. A k tomu je to Ježíš trestající a mě smutně napadá, že vidí-li toto ten skutečný Ježíš, pak musí stát při mně, a křičí-li tento Ježíš na konci avantgardních pašijí jako nějaká hystrionská kuběna: „Pane, proč jsi mě opustil,“ mohu si dovolit zvolat tu repliku v duchu s ním. A pocítím najednou v závrati, že s ním v ten okamžik konečné splývám. S jeho zoufalstvím, čert vem že hraným, bůh ví zda hraným, se zoufalstvím z divadla. V ten Velký pátek, který byl kdysi skutečně velikým.
 
-\* \* \*
-
-  
+* * *
 
 Je jeden jazyk. Miluji ho. Je to slovenština. Kdykoliv prožívám hluboké emocionální vytržení, přecházím nevědomky do tohoto jazyka, který ve skutečnosti neovládám, a proto ho tolik przním. A čím víc ho przním, tím jsem citovější, řeklo by se i hysteričtější, a proto ho nesmím používat často, ten milovaný jazyk, zakazuju si ho používat. Nesmím se zkrátka dostávat do velkých citových vypětí a obtíží, myslím si, musím se jim i nadále obezřetně vyhýbat, takovýmto směšným – směšným situacím klidný život prznícím.
 
-\* \* \*
-
-  
+* * *
 
 Je jeden muž a je i velmi dávný, a také velmi slovenský. Miluje mě, nenávidím ho, miluje mě příliš. Musím ho opustit, miluje totiž už celou mou rodinu: matku, otce, bratra a prarodiče, už i mí příbuzní milují jeho, a já pořád ne a ne, nemám ho ráda, kokotka. Čekám, že mi vytne políček, když mu to říkám, když ho opouštím, toho hodného hocha z hlavního města. Ale on pláče, on pláče _slovensky_; od té doby nedokážu slyšet slovenský mužský pláč. Utíkám z toho velkého bytu a prchám do ještě většího katolického kostela, neboť jsem na Slovensku. A tam, v katolickém kostele hlavního uplakaného města, ke mně přistupuje muž s podlitýma očima, cikán východňár. „Prečo plačeš, dievča, to kvoli Mečiarovi?“ Když se tomu oba od srdce zasmějeme, rozeznějí se varhany; Bachova sedmá suita. A zeptá se mě východňár, jestli nemám v kapse kalhot nějaké ty drobáky.
 
-\* \* \*
-
-  
+* * *
 
 Je jeden muž, a je to ten můj starý trulo. Em. ho, em. mě. V technu to zní takto: emhoemněemhoemněemhoemně… Ležíme, odpočíváme. Přeji si, aby mně konečně po letech soužití splnil mé přání. Říkám mu: „Uchop mě, prosím, za pravou nohu, za pravou, kolikrát jsem říkala, že za pravou, mám ti to nakreslit? A jeď prosím. Táhni mě po zemi, smýkej mnou po zemi, ale jemně, ať to nebolí.“ Souhlasí. Je hodný. Chápe se mé nohy. Splete si to však. Drží mě omylem za nárt levé nohy, chtěla jsem pravou, no dobrá, nebudu to komplikovat. Tak jeď, jeď už, táhni mě. Jedeme, kloužu po parketách ložnice jako ruské sáně, jsem bezvládná a šťastná, ale ta noha že je jiná, musím na to pořád myslet. Ve dveřích ložnice se mé tělo navíc vzpříčí. Zarazí se o schodek zápraží. „Neprojedeme, hrbol,“ hlásí muž s úlevou. „Vystupovat – konečná,“ zvolá občerstven tou nehodou. Ach, co si teď počít? Teď mě ten můj trulo lehce nakopne, a začne se smát, jako chlapčuljatko a taky jako pičus, zvesela dětsky se směje, bezstarostně, jako by byl po šichtě, jako by dofáral. Co teď, zvolám naposledy a zpanikařím, vždyť vše je ztraceno, koncept vášně zničen. Sbíráme svršky. Zkusím stojku o stěnu, zažongluji s pomeranči, ať ještě zůstane trocha svátku. Umýt se, obléct. Po svých si jít.
 
-\* \* \*
-
-  
+* * *
 
 Je jeden muž. Miluji jeho pošahané dopisy, čím je jeho dopis pošahanější, tím je mi ten muž milejší. A je to proto, že jsou ty texty pošahané tolik. Když mu to však říkám, tomu muži, kroutí nevěřícně hlavou, to nečekal, podraz takový, je mnou hluboce zklamaný a pak už i zlý, říká mi, že nemůže, že prostě nemůže dál milovat tak zvrhlou, úchylnou ženu, co miluje jen pošahanost jeho.
 
-\* \* \*
-
-  
+* * *
 
 Je jeden muž. Miluji ho. Je to katolík, je to katolický kněz, má zvláštní zvířecí (hovězí) příjmení, a kdykoliv mi dovolí položit otázku, zeptám se ho na Boha a prudce zrudnu jako krocan. To kvůli němu chci ve čtrnácti letech hrát na varhany na kůru kostela, to kvůli němu žárlím na mladou jeptišku z naší modlitební skupinky, neboť zůstávám pannou a ani ne nevěstou Ježíšovou. Drží mě to od Vánoc až do Velikonoc, ta tragická láska k bližnímu. Pak při velikonoční mši omdlím, a později změním stav, postoj a dokonce i konfesi.
 
-\* \* \*
-
-  
+* * *
 
 Je jeden muž, chodí do jedné berlínské školky a je to tedy malý muž, chlapeček M. Donedávna jsem si myslela, že ke mně cítí jistou náklonnost. Zrzavé vlásky, pihy, drobné tělíčko, tatínek Rus, maminka Ruska. A teď něco nového o chlapečkovi M. Vyzvedávám svou dcerku ze školky, podívá se na mě, ten malý chlapeček M., podívá, ukáže na mě prstem. Usměju se na něj a on fistulkou zapiští: „Ich hasse diese Frau, ich hasse dich, ich hasse dich, jojoooooj.“ Směje se, skáče na trampolíně a volá stále dokola tu dokonalou, strašlivou a jistě i silnou větu.
 
-\* \* \*
-
-  
+* * *
 
 Je jeden muž. A je to trochu divný muž. Vodívá svou dcerku do berlínské školky a mluví a mluví. Miluji jeho řeč, zvlášť když jí přestávám rozumět. Ptá se mě, jestli umím slovensky a rozumím ukrajinsky, diví se, že Husák (jak v něm jen uvízlo slovo takové?) je už po smrti, chlubí se řidičákem na jachtu, v očích mu rotují divoká kola úzkosti. Mluví a ostatní rodiče prchají, ale mně se líbí, já držím, stojím, poslouchám. I když je v šatně horko, máme na sobě šály a kabáty. Posadila bych ho na houpacího koně, ale kde koníka v šatně vzít? Prská skrze díru mezi předními zuby, že masový vrah Adam Lanza z New Yorku byl agentem CIA. Klepla bych tě po týdnu paličkou na maso, říkám si. Pak je mi ho zase líto. Podávám mu ze země rukavici a chlácholím: „Proč myslíš, že je Angela Merkelová lesba? Proč je ti líto, že je Spréva zamrzlá, když zamrzlá není? Já vím. Člověk nemá chvilku klidu, já vím, já vím, je to i na hovno, občas, ten náš život; tak zítra, zase zítra tady?“ A on se usmívá, bere si ode mě konečně tu rukavici a prudkými pohyby vychází z šatny ven. „Tak zítra, tolik se těším!“ zakřičí emfaticky z chodby. „Ano,“ říkám, „tak zítra, zítra zase v šatně školky.“
 
-\* \* \*
-
-  
+* * *
 
 Je jeden muž. M-ho a nen-ho. Krmí naši tříletou dcerku gulášem jako husu, říkám mu. „Krmíš ji jako husu, vždyť to všechno vyblinká…“ „Mlč, ty si zase s ničím nešpiníš ruce, že?!“ útočí… „S ničím?“ rozčí­­lím se… „S ničím?“ Dívám se mu ukřivděně na to místo, kde pod oblečením schovává tu věc, takže jde o místo spíš abstraktní, o utajené místo, na něž já upřeně hledím, spíše o lokalitu toho místa jde, o lokalitu našeho občasného zájmu, našeho společného snažení, našeho zájmového kroužku, důvodu nebešťanské radosti, důvodu existence našich dětí, občasného citového vydírání, rozkoše, výčitek, vyslyšených modliteb, uspokojení, zmaru, pocitu smělosti, směšnosti, později i chorob různých, například prostaty. Ráda bych se mu podívala i do očí. Ale jeho oči bývají často tak ironické. Buď cikán, chce se mi zvolat, ne, buď zženštilým machistickým indiánem, plakej mi na ramenou, potetuj se, ožer se, vboř se do mě, nabourej, směj se a plakej současně. „To je něco jiného,“ poučuje mě zas jemně. „To je služba vlasti. Vždyť i já tvé vlasti sloužívám,“ povytáhne obočí, sleduje mě, upřeně hledí, a zatváří se zase tak klidně, spokojeně, jemně; vojáček, cikánek najednou, drze si mě přeměřuje, spokojen sám se sebou, usmívá se. I děti se dnes usmívají. Dnes tedy žádný boj. Dnes ne. Je sobota, nejsme nejmladší. Klid. Tak jak to máme rádi, hluboký, trochu už znuděný klid… Celý život ať je takovým, dlouhým, klidným až nudným, veselým jen zlehýnka, žádné výboje, žádné mánie, žádné extrémy a jen maličko smutným ať je, ten život náš měšťácký a trochu venkovský.
 
-\* \* \*
-
-  
+* * *
 
 Je jeden muž, a když to jinak nejde, pak já ho i _milho_ těžkou _lásvistí_.
 
-\* \* \*
-
-  
+* * *
 
 Je jeden muž, invalida na opuštěné křižovatce v temných uličkách nočního Alt Moabitu. Vracím se od maďarské fyzičky, co je i šamankou. Otevřela mi právě nečekaně čakry, čakry mi do těla zpátky vběhly, v žilách mi proudí čakry ztracené. Všechno je legrační, nepravděpodobné, ta noc, ten děj, bloudím, třeští mi ze všeho hlava. A pak spatřím jednoho muže. Sedí na invalidním vozíku. Neublíží mi, pomyslím si rozumně a ptám se ho na cestu. Říká, že ví, kudy ven z bludiště temných koutů; samozřejmě že ví, kudy na nádraží, ale ať ho tam koukám dotlačit. Tak tlačím berlínskou nocí invalidu, úplně ožralého. Mluví o uříznutých nohou, kuřecích křidýlkách z Rewe, o idiotech ve městě B. a o tom, jak je veškerá řeč na hovno, stále se všemu směje, lidový mudrc. Pak se u nádraží rozloučíme a pohlédneme si poprvé do očí. Křičí na mě přes velkou rušnou cestu, jakže se to jmenuju. „Ďůra, jo, ďůra?“ Dostane další záchvat smíchu. Je jeden muž a je právě šťastný, protože Bohem milován.
 
-\* \* \*
-
-  
+* * *
 
 Je jeden muž. Miluje mě vlažně, miluji ho vláčně. Nic nového. Vše je s ním odjakživa takové komplikované, mlžné, sotva uchopitelné, jako ten dnešní sen. Ležíme vedle sebe nazí, přikrytí duchnou s kytičkami. Spí. Já si ale vybavím, co mi kdysi v B. říkaly holky. Smrdí mu nohy, páchnou mu strašně nohy. Neslyšně proto zvedám peřinu a sunu svůj nos k jeho chodidlům, čichám k nim zdálky, pak se osmělím, až se můj nos lehce dotkne jeho paty, levé a pak i pravé. Svůj nos tiše vnořím do jeho prstů. Tři prsty pokryté tvrdými černými chlupy. I nehty tvrdé, asi týden nestříhané, za nehtem levého palce špína, pedikúru nezná. Tam, kde je kůže na patě seschlá, tam ji svým jazykem opatrně zvlhčím, jazykem postupně otírám celé jeho chodidlo, velikost nohy odhadem 43. Tak to se ještě krátce podívám na jeho spící úd. Opravdu nic necítím! Vůbec nic. Žádný puch. Jen teploučko spících chodidel a lehké cukání nervů. Posílám holkám sms a dál zůstávám pohroužena do rituálního obřadu. Štěstí nepotřebuje víc. Žádné vykřičníky, žádné otazníky, žádnou složitou větnou syntax. Snad jen tuhle malou, bezvýznamnou tečku.
 
-\* \* \*
+* * *
 
-Dnes svítilo v B. celé dopoledne slunce. Sníh, mráz, a ve sněhu slabý odraz paprsků. Z okna ložnice byly vidět na chodníku v čerstvě napadaném sněhu stopy. Stopy dítěte, ženy, muže, stopy starého člověka a jedné zabodnuté hole, malé stopy psů a ještě menší stopy vrabců. Ulicí projel jednou či dvakrát osamělý lyžař, a dítě, co ho jeden z dospělých táhl na saních, slabě pobrekávalo. Sem tam ostrý štěkot psa. Jinak nic. Hluk města jako by s noční sněhovou nadílkou zmizel, ani žádná auta nebylo slyšet. A když znovu otvírám okno, uslyším dokonce dech osamělého běžkaře, co právě běží ulicí. Možná, že takhle vypadá ráj. Pusté a tiché město tří a půl milionů osamělých běžkařů. V každém okně stojí jeden, dokonce i na záchodě posedávají takoví: tiší, mlčenliví, osamělí lyžaři; i v nemocnicích, na úřadech, v kinech i ve školkách jsou nějací, všude postávají s lyžemi a čekají smířeně na příští trať. Co kdybych Esterákově dceři, která zrovna kuchtí ve své kuchyni, z okna své kuchyně zamávala? Ne. Samozřejmě, že ne. Neudělám to.
+_Dnes svítilo v B. celé dopoledne slunce. Sníh, mráz, a ve sněhu slabý odraz paprsků. Z okna ložnice byly vidět na chodníku v čerstvě napadaném sněhu stopy. Stopy dítěte, ženy, muže, stopy starého člověka a jedné zabodnuté hole, malé stopy psů a ještě menší stopy vrabců. Ulicí projel jednou či dvakrát osamělý lyžař, a dítě, co ho jeden z dospělých táhl na saních, slabě pobrekávalo. Sem tam ostrý štěkot psa. Jinak nic. Hluk města jako by s noční sněhovou nadílkou zmizel, ani žádná auta nebylo slyšet. A když znovu otvírám okno, uslyším dokonce dech osamělého běžkaře, co právě běží ulicí. Možná, že takhle vypadá ráj. Pusté a tiché město tří a půl milionů osamělých běžkařů. V každém okně stojí jeden, dokonce i na záchodě posedávají takoví: tiší, mlčenliví, osamělí lyžaři; i v nemocnicích, na úřadech, v kinech i ve školkách jsou nějací, všude postávají s lyžemi a čekají smířeně na příští trať. Co kdybych Esterákově dceři, která zrovna kuchtí ve své kuchyni, z okna své kuchyně zamávala? Ne. Samozřejmě, že ne. Neudělám to._
 
-\* \* \*
-
-  
+* * *
 
 Je jeden muž, a je to můj muž. M. ho, m. mě a taky někdy naopak. Říká mi, že nesmím mluvit, a mluvím-li, nesmím používat ta a ta slovesa, ta a ta podstatná jména, to je pro něj obzvlášť podstatné, jinak zničím vše krásné, co mezi námi bylo. Mlčím a směji se, je ke mně dnes tolik pozorný a milý, a tak se jen směji, směji se vlastně i tomu, že se musím smát, abych něco nepokazila, slovem nějakým, podstatným třeba. Pak ale vysloví jednu jedinou bohapustou, oškli­vou větu. A jako obyčejně, všechno to krásné tou větou pokazí.
 
-\* \* \*
-
-  
+* * *
 
 Je jeden muž na Wilsonově nádraží, dále baťůžkáři, Ind s kufrem, několik desítek nevýrazných cestujících. Ten jeden muž si vybral mě. Jsem jeho vyvolenou. Jen ke mně se jeho oči upírají s nadějí. Ukazuje na mě prstem a rapuje: „_Moj život ma ničí, tvoj život je v piči, na obzoru změna, kurrrva buď ma žena,_“ mumlá, a pak už ani to ne, masturbuje soustředěně a vážně, jako nějaký chlapeček na kostelním kůru; levou nohou s roztrhanou nohavicí a obvazem si podupává. Dívám se na něj, nechci se dívat, pozoruji ho, nechci pozorovat, na tváři má ošklivý šrám, z nosu mu teče krev. Vidím současně periferně, že u východu popíjejí tři bezpečnostní agenti nápoj z papírových kelímků, připraveni k akci, _sei bereit_. Dej bože, ať si ho nevšimnou, dej, ať je jeho žalm nepřiláká blíž, ať neucítí jeho sperma, ať nedostane v tento předvánoční čas na kokos, ať ho brutus nezkopou, ochraňuj ho, pane, amen. Vždyť ho ani nedokážu nenávidět. To už spíš ty samečky gorilí, ale ani ty ne. Vždyť i oni jsou mí bližní, a možná dokonce i revizoři z metra, i když je těžké přijmout to. Nedám bezdomovci ani ň. Nejsem jeho vyvolená. Jsem zlá. Odejdu. Ale myslím na něj ještě teď. Lol, řekli by mladí.
 
-\* \* \*
-
-  
+* * *
 
 Je jeden muž a je to starý muž. Jde zasněženou ulicí se zelenou síťovkou, pomalými kroky opatrně našlapuje na chodník s ostrůvky náledí. Proti němu kráčí stařenka, šourá se, i ona v ruce síťovku, shrbená. Pozoruju je z okna ložnice. Miluje je někdo? Minuli se. Stará žena cupitá měkkými malými krůčky dál, dává si záležet na každém kroku, je unavená, to je znát. Muž, asi tak pět metrů od ní, nečekaně natáčí své tělo jejím směrem. Pokyne obřadně hlavou, na okamžik ustrne v krátkém zamyšlení, _skoro jako by něco_, skoro jako by něco chtěl. Je jeden muž a jedna žena, co právě muže minula.
 
-\* \* \*
-
-  
+* * *
 
 Je jeden muž. A je to jeden z mých posledních synů vlasti, který mi do mé čím dál nesrozumitelnější ciziny občas napíše. Jsem ve věku, kdy beru všechno. Jakýkoliv pozdrav, pokynutí pošťáka, úsměv souseda, co mi pomůže vynést koš, jen abych na chodbě zas nevybryndala pomerančovou šťávu z odpadkového pytle, ten bordel, co by po mně musel uklízet, tak to on mi raději pomůže, „s dovolením madam,“ říká, žovialita z lítosti. Jsem však v tom veselém věku, kdy můžu na chodbě flirtovat se čtyřicátníky i s chlapci s pupínky, a oni si toho buď nevšimnou, nerozumí mi (mám špatnou zubní protézu), nebo se soucitně usmějí, překročila jsem čáru, není za co se stydět, jsem svobodná. Často dávám chlapcům z domu nevyžádané rady, jednomu pravidelně říkám: „Hele, ta tvoje má radši jiný klacky, než co ty furt hážeš svýmu psovi, tak se useber, má ráda jiný klacky, ta tvoje.“ A oni se na mě dál shovívavě usmívají, ti sousedé, ti chlapci, ti muži a dědkové v čekárnách nemocnic. Jsi dobrá, vážně, ty jedeš, babo, vagina se ti dávno houpe na kolenou a ty furt jedeš. Je jim milá má uvolněnost, jako by byla smyslem toho všeho, všeho toho snažení. Přírodní koloběh, tělocvik v dvaapadesátém, léto na Rujáně s Rudym, slast a dřina, kabinka na koupališti v roce padesát tři, ten dávno mrtvý už a mé mokré, krvavé plavky, tehdy a pak už napořád, jako by ze mě stále krev nějaká, krev nějaká kapala. Když zazvoní dítě od sousedů, dostane čokoládu, aby zazvonilo i podruhé, bytem mi pobíhají králíci, jmenují se králík a králík, aby se to nepletlo, to jsou teď moje děti. Dítěti, co má v hubě čokoládu, zatančím ve dveřích, dokud se mi nezamotá hlava: „_Promiň, he, a máš už holku?_“ Opřu se o dveře, ne, nerozumí mi, je mu šest a je synem pákistánských křesťanů; chtěl by ale ještě tu čokoládu. Udělám cokoliv, „na, chlapečku“. Papej, nate tatínku i vy maminko, vy křesťané, vy židé, vy muslimové, nate i vy, ateističtí sousedé, běloši, rudoši, postůjte tu chvíli, haleluja. Jsem ve věku, kdy všichni mí synové vlasti jeden za druhým kymácivě odcházejí. Jako sněhuláci. A já nechci, já chci, miluji ty sněhuláky.
 
-\* \* \*
-
-  
+* * *
 
 Je jeden muž. Je to jeden muž a máme se tak i tak, jsme staří. Vzájemně se neslyšíme, vzájemně se nevidíme. I on už mi kymácivě odchází, sněhuláček, jeho mrkev je seschlá a měkká, místy plesnivá, k zemi má namířeno. O jeho koulích nemluvě, ty se dávno roztékají, tělo se smrskává, zmenšuje a mizí. Přesto má rád tu ženu uvnitř mě a uvnitř sebe, vždyť mu vousy padají, zatímco mně rostou. Má to tak i rád, jako babička je citlivější. Miluje ve mně abstrakci ženy, vzdálenou vlast, bývalou slast. V úkloně smrti miluje vojáček. Poslední v mém poli. Mám ho ráda, štípnu ho. „Zůstaneš tu se mnou chvíli?“ Člověk se má s milovaným loučit vždycky otázkou.
 
-\* \* \*
-
-  
+* * *
 
 Je jeden muž. Je žlutý, černý, bílý, rudý, je to Turek od okurek, je to herní designer, je to brusič, co má kvér, je to světec, hovado, kurevník, impotent, řezník, statkář, masakr, malý pták, velký lhář, je to sladký ničema, postavil Sixtinskou kapli, elektřinu vymyslel, složil Ódu na radost, je to terorista, který zabije pár set civilistů, jen aby v nebi oprcal sedmdesát dva panen, je to jemný chlapec, koktající muž, kojící muž, sebevrah, transvestit, Jack Nicholson, Antony (and the Johnsons), je to ten a ten, a vše se mu musí odpustit, vše zapomenout, protože milovat je snazší, milovat je nutné; milovat, jako by byl jeden muž; vždyť je jenom jeden. Jenom ten jeden.
 
-\* \* \*
-
-  
+* * *
 
 Je jeden muž. Ale kdyby byl skutečně jediný, bylo by ho všude moc. Sám sobě by překážel. Vítězové bývají osamělí, líbají vlajku v cílové rovince, jsou smělí, ale osamělí, beznadějně osamělí. Vědí to?
 
-\* \* \*
+* * *
 
-Takže si myslím a ví to i Esterházy, že stejně všechno začíná a končí v rytmu popleteného milostného techna. A není na tom vůbec nic špatného, ujetého nebo tak. Na tom technu, na té lásce. Včera jsme jedli borůvkové knedlíky, nepochopitelné, teď, v zimě. Počasí je proměnlivé, venku zase leží sníh, ale brzy prý začne tát. E. dcera dnes v okně zazpívala svému synkovi-dcerce maďarskou písničku. Vezmu ty texty a hodím jí je do schránky. Pomyslí si, že je to divné, nějaká pošahaná Slovanka, vyhodí papíry do kontejneru. Vytáhnu je z kontejneru; vždyť bydlíme ve stejném domě. A zkusím znovu. Najdu-li je potřetí v popelnici, vezmu ty texty a uložím je do šuplíku, kde se časem ztratí, jako se v mém životě ztrácí vše, o co se řádně nestarám. Musím se o všechno řádně starat, to si myslím, o všechno se řádně starat.
+_Takže si myslím a ví to i Esterházy, že stejně všechno začíná a končí v rytmu popleteného milostného techna. A není na tom vůbec nic špatného, ujetého nebo tak. Na tom technu, na té lásce. Včera jsme jedli borůvkové knedlíky, nepochopitelné, teď, v zimě. Počasí je proměnlivé, venku zase leží sníh, ale brzy prý začne tát. E. dcera dnes v okně zazpívala svému synkovi-dcerce maďarskou písničku. Vezmu ty texty a hodím jí je do schránky. Pomyslí si, že je to divné, nějaká pošahaná Slovanka, vyhodí papíry do kontejneru. Vytáhnu je z kontejneru; vždyť bydlíme ve stejném domě. A zkusím znovu. Najdu-li je potřetí v popelnici, vezmu ty texty a uložím je do šuplíku, kde se časem ztratí, jako se v mém životě ztrácí vše, o co se řádně nestarám. Musím se o všechno řádně starat, to si myslím, o všechno se řádně starat._
 
-\* \* \*
+* * *
 
-Na školkovém dvorku se děti přetahují o oranžový umělohmotný bagr. Chlapeček s holčičkou. Mlčky. Jsou veselí a jsou i smutní. Pozoruji je z okna ložnice. Myslím taky na tebe; hlavně na tebe. Ne moc, trošku, skoro vůbec. Protože ruská čokoláda, protože láska.
+_Na školkovém dvorku se děti přetahují o oranžový umělohmotný bagr. Chlapeček s holčičkou. Mlčky. Jsou veselí a jsou i smutní. Pozoruji je z okna ložnice. Myslím taky na tebe; hlavně na tebe. Ne moc, trošku, skoro vůbec. Protože ruská čokoláda, protože láska._
 
-Protože lásk. je modlitba a modlitb. je láska.
+_Protože lásk. je modlitba a modlitb. je láska._
