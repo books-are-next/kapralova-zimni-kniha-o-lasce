@@ -2,6 +2,8 @@
 contentType: prose
 ---
 
+<section>
+
 >   
 
 >   
@@ -12,3 +14,5 @@ contentType: prose
 > jste mně s P. E. (Peter Esterházy) doporučili.
 
 > Děkuji. Je to hezký, klidný, zimní zvyk.
+
+</section>
