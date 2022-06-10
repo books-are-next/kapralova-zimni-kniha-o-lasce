@@ -2,11 +2,7 @@
 contentType: prose
 ---
 
-  
-
-  
-
-  
+<section>
 
 Je jeden muž. Miluji ho. Je starý jako Metuzalém, a když se protáhne, praskají mu kosti v těle. Nenávidí mě dravou nenávistí chudých starců. Tvrdí, že přicházejí dny bezplatných mostů… To je něco o smrti? Goethe? Nerozumím mu ani slovo, a proto ho tolik miluji. Piju s ním nejraději ruskou čokoládu a přemítáme o Fontainovi, protože ten je dlouho mrtev a téma je to víceméně neutrální. Říkám mu: „Srdce mi puká jen tak obyčejně. Praporem mé loďky je vaše střízlivost. Bruslíte? Miluji vás. Ale je to těžké, takto a tolik!“ Mlčí trochu zpupně. A pak mi krasopisně na účtenku napíše: _Co furt otravuješ?_
 
@@ -323,3 +319,5 @@ _Takže si myslím a ví to i Esterházy, že stejně všechno začíná a ko
 _Na školkovém dvorku se děti přetahují o oranžový umělohmotný bagr. Chlapeček s holčičkou. Mlčky. Jsou veselí a jsou i smutní. Pozoruji je z okna ložnice. Myslím taky na tebe; hlavně na tebe. Ne moc, trošku, skoro vůbec. Protože ruská čokoláda, protože láska._
 
 _Protože lásk. je modlitba a modlitb. je láska._
+
+</section>
