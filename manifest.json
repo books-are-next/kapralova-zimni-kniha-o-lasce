@@ -1,0 +1,130 @@
+{
+  "preview": {
+    "isPreview": false
+  },
+  "title": "Zimní kniha o lásce",
+  "subtitle": "Je jeden muž, Barrichello",
+  "author": "Dora Kaprálová",
+  "publisher": "Městská knihovna v Praze",
+  "languageCode": "cs",
+  "root": "main",
+  "identifier": "kapralova-zimni-kniha-o-lasce-362052a",
+  "revision": "362052a",
+  "readingOrder": [
+    "promo.html",
+    "zimni_kniha_o_lasce_005.html",
+    "zimni_kniha_o_lasce_006.html",
+    "zimni_kniha_o_lasce_007.html",
+    "colophon.html"
+  ],
+  "generatedAt": {
+    "date": "Sun Jun 26 2022 11:13:10 GMT+0000 (Coordinated Universal Time)",
+    "unix": 1656241990711
+  },
+  "documents": [
+    {
+      "title": "Městská knihovna v Praze",
+      "file": "promo.html",
+      "words": 0,
+      "chars": 0,
+      "ideas": 0,
+      "role": "chapter",
+      "order": 0,
+      "prev": null,
+      "next": "zimni_kniha_o_lasce_005.html",
+      "toc": []
+    },
+    {
+      "title": "Zimní kniha o lásce",
+      "file": "zimni_kniha_o_lasce_005.html",
+      "words": 29,
+      "chars": 141,
+      "ideas": 5,
+      "role": "chapter",
+      "order": 1,
+      "prev": "promo.html",
+      "next": "zimni_kniha_o_lasce_006.html",
+      "toc": [
+        {
+          "index": 0,
+          "level": 1,
+          "name": null,
+          "id": null,
+          "children": []
+        }
+      ]
+    },
+    {
+      "title": "Zimní kniha o lásce",
+      "file": "zimni_kniha_o_lasce_006.html",
+      "words": 26,
+      "chars": 141,
+      "ideas": 3,
+      "role": "chapter",
+      "order": 2,
+      "prev": "zimni_kniha_o_lasce_005.html",
+      "next": "zimni_kniha_o_lasce_007.html",
+      "toc": [
+        {
+          "index": 0,
+          "level": 1,
+          "name": null,
+          "id": null,
+          "children": []
+        }
+      ]
+    },
+    {
+      "title": "Zimní kniha o lásce",
+      "file": "zimni_kniha_o_lasce_007.html",
+      "words": 13214,
+      "chars": 76702,
+      "ideas": 80,
+      "role": "chapter",
+      "order": 3,
+      "prev": "zimni_kniha_o_lasce_006.html",
+      "next": "colophon.html",
+      "toc": [
+        {
+          "index": 0,
+          "level": 1,
+          "name": null,
+          "id": null,
+          "children": []
+        }
+      ]
+    },
+    {
+      "title": "Tiráž",
+      "file": "colophon.html",
+      "words": 144,
+      "chars": 927,
+      "ideas": 17,
+      "role": "colophon",
+      "order": null,
+      "prev": "zimni_kniha_o_lasce_007.html",
+      "next": null,
+      "toc": [
+        {
+          "index": 0,
+          "level": 1,
+          "name": "Tiráž",
+          "id": null,
+          "children": []
+        }
+      ]
+    }
+  ],
+  "totals": {
+    "all": {
+      "words": 13420,
+      "chars": 77947,
+      "ideas": 108
+    },
+    "chapters": {
+      "words": 13269,
+      "chars": 76984,
+      "ideas": 88
+    }
+  }
+}
