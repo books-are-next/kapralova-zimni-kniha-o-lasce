@@ -67,7 +67,7 @@
             "filename": "zimni_kniha_o_lasce_003.md",
             "xhtml": "zimni_kniha_o_lasce_003.xhtml",
             "id": 2,
-            "role": "colophon",
+            "role": "about",
             "listType": "plain",
             "inToc": false,
             "hungry": false,
@@ -79,7 +79,7 @@
             "filename": "zimni_kniha_o_lasce_004.md",
             "xhtml": "zimni_kniha_o_lasce_004.xhtml",
             "id": 3,
-            "role": "colophon",
+            "role": "about",
             "listType": "plain",
             "inToc": false,
             "hungry": false,
@@ -129,7 +129,7 @@
             "filename": "zimni_kniha_o_lasce_008.md",
             "xhtml": "zimni_kniha_o_lasce_008.xhtml",
             "id": 7,
-            "role": "colophon",
+            "role": "about",
             "listType": "plain",
             "inToc": false,
             "hungry": false,
@@ -261,6 +261,6 @@
       "user": "books-are-next",
       "repo": "kapralova-zimni-kniha-o-lasce"
     },
-    "generatedAt": 1656241910001
+    "generatedAt": 1657182033472
   }
 }
