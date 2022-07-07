@@ -19,7 +19,7 @@ readingOrder:
   - zimni_kniha_o_lasce_005.html
   - zimni_kniha_o_lasce_006.html
   - zimni_kniha_o_lasce_007.html
-  - colophon.html
+  - about.html
 tocBase:
   - id: section-1
     children:
