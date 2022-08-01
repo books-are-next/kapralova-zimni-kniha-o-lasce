@@ -9,7 +9,7 @@
       "modified": "2021-07-14T00:00:00.000Z",
       "subtitle": "Je jeden muž, Barrichello",
       "publisherShort": "mkp",
-      "isbn": "978-80-274-1725-4",
+      "isbn": "978-80-274-2607-2",
       "contentType": "prose"
     },
     "elements": {
@@ -26,12 +26,12 @@
       "brAfter": ".+0.12\n.+12.12\n.+0.12.\n.+12.12.\ne.bookversebezpredsazeni.*za.*\ne.bookodsazeniodstavce.*za.*",
       "blockquote": "MLP.DENIK\nMLP.dopis.*\nMLP.citat\nMLP.prima.rec\ne.bookdopis\ne.bookprozatextkurzivadoprava",
       "figure": "MLP.obrazky.*\nmlpobrazky",
+      "centered": ".*uprostred.*",
+      "verse": "MLP.verse.*",
       "em": ".*kurziva.*\n.*-I-.*\n.*-I\n.*_I_.*\n.*_I\nMLP.venovani\nMLP.verse.*\nMLP.titulka.prekladatel\nMLP.pozn.pod.carou\nMLP.scenicke.poznamky\ne.booktextvenovani.*\nmlpvenovani.*\nmlpversei",
       "strong": "MLP.tiraz.autor.a.nazev\nMLP.tiraz.podnazev\nMLP.licence.paragraf\n.*tucne.*\n.*tucna.*\n.*-B-\n.*-B\n.*_B_\n.*_B\nMLP.prima.rec\nMLP.prima.rec.bez.mezery\ne.booktirazautoradilo\nmlptextb\nmlptirazautoranazev",
       "remove": "",
-      "ignore": "",
-      "centered": ".*uprostred.*",
-      "verse": "MLP.verse.*"
+      "ignore": ""
     },
     "structure": [
       {
@@ -97,8 +97,8 @@
             "hungry": false,
             "devoured": false,
             "hiddenTitle": true,
-            "children": [],
-            "title": "Věnování"
+            "title": "Věnování",
+            "children": []
           },
           {
             "filename": "zimni_kniha_o_lasce_006.md",
@@ -110,8 +110,8 @@
             "hungry": false,
             "devoured": false,
             "hiddenTitle": true,
-            "children": [],
-            "title": "Poděkování"
+            "title": "Poděkování",
+            "children": []
           },
           {
             "filename": "zimni_kniha_o_lasce_007.md",
@@ -261,6 +261,6 @@
       "user": "books-are-next",
       "repo": "kapralova-zimni-kniha-o-lasce"
     },
-    "generatedAt": 1658413531862
+    "generatedAt": 1659363826700
   }
 }

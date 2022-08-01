@@ -12,7 +12,7 @@ meta:
   modified: '2021-07-14T00:00:00.000Z'
   subtitle: Je jeden muž, Barrichello
   publisherShort: mkp
-  isbn: 978-80-274-1725-4
+  isbn: 978-80-274-2607-2
   contentType: prose
 readingOrder:
   - promo.html
