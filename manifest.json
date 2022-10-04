@@ -8,8 +8,8 @@
   "publisher": "Městská knihovna v Praze",
   "languageCode": "cs",
   "root": "main",
-  "identifier": "kapralova-zimni-kniha-o-lasce-6a329c8",
-  "revision": "6a329c8",
+  "identifier": "kapralova-zimni-kniha-o-lasce-bafa6e9",
+  "revision": "bafa6e9",
   "readingOrder": [
     "promo.html",
     "zimni_kniha_o_lasce_005.html",
@@ -18,8 +18,8 @@
     "about.html"
   ],
   "generatedAt": {
-    "date": "Tue Oct 04 2022 18:38:48 GMT+0000 (Coordinated Universal Time)",
-    "unix": 1664908728140
+    "date": "Tue Oct 04 2022 22:55:35 GMT+0000 (Coordinated Universal Time)",
+    "unix": 1664924135446
   },
   "documents": [
     {
