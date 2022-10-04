@@ -8,8 +8,8 @@
   "publisher": "Městská knihovna v Praze",
   "languageCode": "cs",
   "root": "main",
-  "identifier": "kapralova-zimni-kniha-o-lasce-427e4f0",
-  "revision": "427e4f0",
+  "identifier": "kapralova-zimni-kniha-o-lasce-7a5b99c",
+  "revision": "7a5b99c",
   "readingOrder": [
     "promo.html",
     "zimni_kniha_o_lasce_005.html",
@@ -18,8 +18,8 @@
     "about.html"
   ],
   "generatedAt": {
-    "date": "Sat Oct 01 2022 15:56:57 GMT+0000 (Coordinated Universal Time)",
-    "unix": 1664639817472
+    "date": "Tue Oct 04 2022 16:44:33 GMT+0000 (Coordinated Universal Time)",
+    "unix": 1664901873073
   },
   "documents": [
     {
@@ -97,9 +97,9 @@
     {
       "title": "Tiráž",
       "file": "about.html",
-      "words": 144,
+      "words": 142,
       "chars": 927,
-      "ideas": 17,
+      "ideas": 15,
       "role": "about",
       "order": null,
       "prev": "zimni_kniha_o_lasce_007.html",
@@ -117,9 +117,9 @@
   ],
   "totals": {
     "all": {
-      "words": 13420,
+      "words": 13418,
       "chars": 77947,
-      "ideas": 108
+      "ideas": 106
     },
     "chapters": {
       "words": 13269,
